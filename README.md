@@ -11,6 +11,7 @@
 * [ראש ממשלת קנדה לשעבר מדבר על נתניהו](https://twitter.com/Lidar_Yarin/status/1220808197730074626?s=20)
 * [פסל שעווה של ביבי הוקם ליד טראמפ ופוטין, ראשי מעצמות העולם](https://twitter.com/mohsaud08/status/1221805017172271104?s=20)
 * [זלמן שובל: אם ביבי יעזוב, זה יהווה נזק לישראל](https://www.facebook.com/permalink.php?story_fbid=2264143550552173&id=100008696496760)
+* [האסטרטגיה של ביבי](https://www.israelhayom.co.il/opinion/729247)
 * [ראיון מקיף עם ביבי](https://www.facebook.com/watch/?ref=saved&v=487870205459997)
 
 # עסקת המאה
