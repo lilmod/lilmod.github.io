@@ -124,6 +124,7 @@
 וחלק גדול מזה בזכות ביבי.
 
 * [שעורי האבטלה לטווח ארוך](https://twitter.com/LiberalRiWo/status/1221487495386488832?s=20)
+* [אבטלה של 3.4%](https://www.globes.co.il/news/article.aspx?did=1001316761)
 * [המצב בתקשורת לעומת המציאות](https://www.facebook.com/watch/?v=2312068642231275)
 
 ### התקשורת והפרקליטות
