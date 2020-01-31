@@ -52,7 +52,7 @@
 
 # כחול לבן ובני גנץ
 
-[מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
+* [מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
 
 ### האם בני גנץ מתאים לתפקיד ראשות ממשלה?
     
