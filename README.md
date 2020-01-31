@@ -49,6 +49,8 @@
 
 # כחול לבן ובני גנץ
 
+[מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
+
 ### האם בני גנץ מתאים לתפקיד ראשות ממשלה?
     
 * [חיוני: תפקודו של גנץ. לשמוע עד הסוף](https://www.facebook.com/GaleyIsrael/videos/369660013721104/)
