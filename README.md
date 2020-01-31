@@ -79,6 +79,7 @@
 * [סיקור אוהד למנדלבליט](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
 
 ### פרקליט המדינה
+* [אורנה בן דור. חשוב מאוד!](https://www.youtube.com/watch?time_continue=27&v=mBq89GBHs5g&feature=emb_logo)
 * [התנהגות בעיתית מאוד של שי ניצן](https://www.maariv.co.il/journalists/Article-731024)
 * [שופטת: שי ניצן מפעיל אכיפה רק נגד הימין](https://www.makorrishon.co.il/nrg/online/1/ART2/621/116.html)
 * [פרקליט המדינה עושה נסיונות בבני אדם](https://www.xn--7dbl2a.com/2019/07/26/%D7%91%D7%95%D7%A2%D7%96-%D7%A1%D7%A0%D7%92%D7%A8%D7%95-%D7%A4%D7%A8%D7%A7%D7%9C%D7%99%D7%98-%D7%94%D7%9E%D7%93%D7%99%D7%A0%D7%94-%D7%A2%D7%95%D7%A9%D7%94-%D7%A0%D7%99/?fbclid=IwAR1c7yQT68qgK9U8s57lElAu8pkzAU_Uv2Lw1NwytCvSsGfRow3eEt8ts2Q#sthash.32SIu07e.D3bXD96f.dpbs)
