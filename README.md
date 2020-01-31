@@ -6,7 +6,7 @@
 
 # בנימין נתניהו
 
-### איזה מין מנהיג ביבי?
+## איזה מין מנהיג ביבי?
 
 * [ראש ממשלת קנדה לשעבר מדבר על נתניהו](https://twitter.com/Lidar_Yarin/status/1220808197730074626?s=20)
 * [פסל שעווה של ביבי הוקם ליד טראמפ ופוטין, ראשי מעצמות העולם](https://twitter.com/mohsaud08/status/1221805017172271104?s=20)
@@ -14,18 +14,18 @@
 * [האסטרטגיה של ביבי](https://www.israelhayom.co.il/opinion/729247)
 * [ראיון מקיף עם ביבי](https://www.facebook.com/watch/?ref=saved&v=487870205459997)
 
-### הישג: שיפור יחסים עם העולם הערבי
+## הישג: שיפור יחסים עם העולם הערבי
 
 * [הערבים מבינים שהפלסטינאים הם מקור הבעיה](https://twitter.com/ManaOfir/status/1223225888961187840)
 
-### הישג: עסקת המאה
+## הישג: עסקת המאה
 
-#### האם עסקת המאה היא הישג מדיני?
+### האם עסקת המאה היא הישג מדיני?
 
 * [מאמר מעולה של גלית דיסטל](https://www.facebook.com/galit.distalatbaryan/posts/2523752181085960)
 * [ארז תדמור על העסקה](https://www.facebook.com/erez.tadmor.9/posts/10156773614312109)
 
-### האם ביבי מושחת?
+## האם ביבי מושחת?
 
 * [ראיון מעולה עם אחיו של ביבי](https://www.israelhayom.co.il/article/721005?fbclid=IwAR1RnOgNo2kTV-RB6Ld5yThj0febm6Vb3lJF-6yjULFwxniel_2b7g6j2lQ)
 
@@ -42,34 +42,34 @@
 * [מה מספר תיק 4000 על בכירי וואלה. חזק](https://www.makorrishon.co.il/magazine/dyukan/187123/)
 * [הצעת החנינה אם ביבי יפרוש](https://www.facebook.com/permalink.php?story_fbid=2219486451684550&id=100008696496760)
 
-### התאגידים
+## התאגידים
 
 * [איך לא האשימו את התאגידים בתיק 4000?](https://www.youtube.com/watch?v=n1HG0dKhK20&fbclid=IwAR3V1WhFxQLL8NMvuv-wB8TqO5UpLxch_7Yu9CjFg4ceOmwJeLAGGqbCyaE)
 * [איך לא לקחו את הכסף](https://www.facebook.com/TalOr314/posts/2349165085394790)
 
-### העדים
+## העדים
 * [איך כוללים אויבים פוליטים בתור עדים?](https://www.facebook.com/permalink.php?story_fbid=2217751151858080&id=100008696496760)
 * [איך כוללים את עורך הדין של ביבי ברשימת העדים?](https://www.facebook.com/permalink.php?story_fbid=2217550305211498&id=100008696496760)
 
-### כתב האישום
+## כתב האישום
 * [כתב אישום לא לגיטימי](https://twitter.com/GadiTaub1/status/1223125369487810560)
 
 # כחול לבן ובני גנץ
 
 * [מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
 
-### האם בני גנץ מתאים לתפקיד ראשות ממשלה?
+## האם בני גנץ מתאים לתפקיד ראשות ממשלה?
     
 * [חיוני: תפקודו של גנץ. לשמוע עד הסוף](https://www.facebook.com/GaleyIsrael/videos/369660013721104/)
 * לגנץ לכאורה יש חוסר יכולת מוחלט לדבר בפומבי, דבר שנחוץ מאוד לראש ממשלה.
 [למשל, הוא זקוק לשלשה טלפרומטרים](https://twitter.com/nachi_z9/status/1221154666085539840?s=20)
 * [מישהו היה נותן לבני גנץ לנהל לו את העסק?](https://www.0404.co.il/?p=530141&fbclid=IwAR0K4p4gv9veqg1yBstEYXCx9dy-EG3nbmosP_qlEcJHCcmuT6aYNtqH2HY)
 
-### האם כחול לבן היא מפלגה רצינית?
+## האם כחול לבן היא מפלגה רצינית?
 
 * [קטעים מנבואותיהם של אנשי כחל"ב](https://www.facebook.com/watch/?v=553520195237470)
 
-### מהן העמדות של כחול לבן?
+## מהן העמדות של כחול לבן?
 
 * [כחול לבן בעצם חייבית לציית לאחמד טיבי, יועצו של ערפאת](https://twitter.com/netanyahu/status/1216723202682105857)
 * [בני גנץ רוצה לממש את מדיניות אהוד ברק](https://twitter.com/GuyCamelmacher/status/1220095015134879753)
@@ -81,7 +81,7 @@
 * [אורנה בן דור. חשוב מאוד!](https://www.youtube.com/watch?time_continue=27&v=mBq89GBHs5g&feature=emb_logo)
 * [דיון מעולה על מערכת המשפט ואיך לתקנה](https://www.facebook.com/tzir60/videos/2584201028572385/)
 
-### היועץ המשפטי
+## היועץ המשפטי
 
 * [מנדלבליט מסתיר את חלקו בפרשת הרפז](https://www.facebook.com/permalink.php?story_fbid=2237202836579578&id=100008696496760)
 * [פרשת הרפז וצו איסור פירסום](https://www.facebook.com/TalOr314/posts/2354275401550425)
@@ -89,7 +89,7 @@
 * [כתב אישום לא לגיטימי](https://twitter.com/GadiTaub1/status/1223125369487810560)
 * [סיקור אוהד למנדלבליט](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
 
-### פרקליט המדינה
+## פרקליט המדינה
 
 * [אורנה בן דור. חשוב מאוד!](https://www.youtube.com/watch?time_continue=27&v=mBq89GBHs5g&feature=emb_logo)
 * [התנהגות בעיתית מאוד של שי ניצן](https://www.maariv.co.il/journalists/Article-731024)
@@ -97,7 +97,7 @@
 * [פרקליט המדינה עושה נסיונות בבני אדם](https://www.xn--7dbl2a.com/2019/07/26/%D7%91%D7%95%D7%A2%D7%96-%D7%A1%D7%A0%D7%92%D7%A8%D7%95-%D7%A4%D7%A8%D7%A7%D7%9C%D7%99%D7%98-%D7%94%D7%9E%D7%93%D7%99%D7%A0%D7%94-%D7%A2%D7%95%D7%A9%D7%94-%D7%A0%D7%99/?fbclid=IwAR1c7yQT68qgK9U8s57lElAu8pkzAU_Uv2Lw1NwytCvSsGfRow3eEt8ts2Q#sthash.32SIu07e.D3bXD96f.dpbs)
 * [הראיון המלטף של שי ניצן](https://www.facebook.com/permalink.php?story_fbid=2227556317544230&id=100008696496760)
 
-### שחיתות בפרקליטות
+## שחיתות בפרקליטות
 
 * לפרקליטות יש בעיה אחת מרכזית: אין לה מנגננון ביקורת אפקטיבי.
 כל ארגון בלי מנגנון ביקורת, סופו להפוך מושחת.
@@ -114,11 +114,11 @@
 * [מדליפי הפרקליטות](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
 * [הפרקליטות וחיים רמון](https://www.facebook.com/bar.shlush.1/posts/3451261461580586)
 
-### שחיתות במערכת בתי המשפט
+## שחיתות במערכת בתי המשפט
 
 * [מינוי קרובים של ברק](https://www.facebook.com/permalink.php?story_fbid=2219134361719759&id=100008696496760)
 
-### האם לרשות השופטת יש כח מופרז?
+## האם לרשות השופטת יש כח מופרז?
 
 * [הסטורית ההפיכה המשפטית בישראל](https://www.facebook.com/bookfaceaddress/posts/10221337580932020)
 * [גדי טאוב מדבר על בעיית הרשויות בישראל](https://www.facebook.com/watch/?v=500227153943077)
@@ -127,13 +127,13 @@
 * [שלטון פקידים עדיף?](https://www.facebook.com/adi.benhur.35/posts/533133647526921)
 * [מכתב מחרדי לאהרון ברק. חזק](https://www.facebook.com/simcha.rothman/posts/10157705995869709)
 
-### האם תוכנית המאה היא תעמולת בחירות של נתניהו?
+## האם תוכנית המאה היא תעמולת בחירות של נתניהו?
     
 * [ניקי היילי מדברת על עיתוי התכנית](https://twitter.com/MiriBarbi/status/1221472092417396738?s=20)
 
 # התקשורת
 
-### האם המצב בארץ גרוע כפי שהתקשורת מציגה?
+## האם המצב בארץ גרוע כפי שהתקשורת מציגה?
 
 להפך. המצב הכלכלי הוא הטוב ביותר שהיה אי פעם,
 וחלק גדול מזה בזכות ביבי.
@@ -142,7 +142,7 @@
 * [אבטלה של 3.4%](https://www.globes.co.il/news/article.aspx?did=1001316761)
 * [המצב בתקשורת לעומת המציאות](https://www.facebook.com/watch/?v=2312068642231275)
 
-### התקשורת והפרקליטות
+## התקשורת והפרקליטות
 
 * [מדליפי הפרקליטות](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
 * [סיקור אוהד למנדלבליט](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
