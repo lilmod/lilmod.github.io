@@ -25,6 +25,14 @@
 * [מאמר מעולה של גלית דיסטל](https://www.facebook.com/galit.distalatbaryan/posts/2523752181085960)
 * [ארז תדמור על העסקה](https://www.facebook.com/erez.tadmor.9/posts/10156773614312109)
 
+## הישג: כלכלת ישראל
+
+* [2020 זינוק בתוצר לנפש](https://www.gplanet.co.il/%d7%a1%d7%95%d7%93-%d7%94%d7%97%d7%93%d7%a8%d7%99%d7%9d-2020-%d7%99%d7%a9%d7%a8%d7%90%d7%9c-%d7%9e%d7%96%d7%a0%d7%a7%d7%aa-%d7%9c%d7%92%d7%91%d7%94%d7%99%d7%9d-%d7%97%d7%93%d7%a9%d7%99%d7%9d-%d7%95/)
+* [שעורי האבטלה לטווח ארוך](https://twitter.com/LiberalRiWo/status/1221487495386488832?s=20)
+* [אבטלה של 3.4%](https://www.globes.co.il/news/article.aspx?did=1001316761)
+* [המצב בתקשורת לעומת המציאות](https://www.facebook.com/watch/?v=2312068642231275)
+
+
 ## האם ביבי מושחת?
 
 * [ראיון מעולה עם אחיו של ביבי](https://www.israelhayom.co.il/article/721005?fbclid=IwAR1RnOgNo2kTV-RB6Ld5yThj0febm6Vb3lJF-6yjULFwxniel_2b7g6j2lQ)
@@ -132,15 +140,6 @@
 * [ניקי היילי מדברת על עיתוי התכנית](https://twitter.com/MiriBarbi/status/1221472092417396738?s=20)
 
 # התקשורת
-
-## האם המצב בארץ גרוע כפי שהתקשורת מציגה?
-
-להפך. המצב הכלכלי הוא הטוב ביותר שהיה אי פעם,
-וחלק גדול מזה בזכות ביבי.
-
-* [שעורי האבטלה לטווח ארוך](https://twitter.com/LiberalRiWo/status/1221487495386488832?s=20)
-* [אבטלה של 3.4%](https://www.globes.co.il/news/article.aspx?did=1001316761)
-* [המצב בתקשורת לעומת המציאות](https://www.facebook.com/watch/?v=2312068642231275)
 
 ## התקשורת והפרקליטות
 
