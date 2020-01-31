@@ -47,6 +47,9 @@
 * [איך כוללים אויבים פוליטים בתור עדים?](https://www.facebook.com/permalink.php?story_fbid=2217751151858080&id=100008696496760)
 * [איך כוללים את עורך הדין של ביבי ברשימת העדים?](https://www.facebook.com/permalink.php?story_fbid=2217550305211498&id=100008696496760)
 
+### כתב האישום
+* [כתב אישום לא לגיטימי](https://twitter.com/GadiTaub1/status/1223125369487810560)
+
 # כחול לבן ובני גנץ
 
 [מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
@@ -79,9 +82,11 @@
 * [מנדלבליט מסתיר את חלקו בפרשת הרפז](https://www.facebook.com/permalink.php?story_fbid=2237202836579578&id=100008696496760)
 * [פרשת הרפז וצו איסור פירסום](https://www.facebook.com/TalOr314/posts/2354275401550425)
 * [היועץ פוסל מחליפה זמנית לשי ניצן](https://www.facebook.com/kinneret.barashi/posts/10221707975355086)
+* [כתב אישום לא לגיטימי](https://twitter.com/GadiTaub1/status/1223125369487810560)
 * [סיקור אוהד למנדלבליט](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
 
 ### פרקליט המדינה
+
 * [אורנה בן דור. חשוב מאוד!](https://www.youtube.com/watch?time_continue=27&v=mBq89GBHs5g&feature=emb_logo)
 * [התנהגות בעיתית מאוד של שי ניצן](https://www.maariv.co.il/journalists/Article-731024)
 * [שופטת: שי ניצן מפעיל אכיפה רק נגד הימין](https://www.makorrishon.co.il/nrg/online/1/ART2/621/116.html)
