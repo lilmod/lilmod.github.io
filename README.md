@@ -47,6 +47,10 @@
 # התיקים
 
 * [תובע פדרלי מנתח את התיקים נגד ביבי. חזק מאוד](https://www.0404.co.il/?p=517590)
+* [הצעת החנינה אם ביבי יפרוש](https://www.facebook.com/permalink.php?story_fbid=2219486451684550&id=100008696496760)
+
+## תיק 4000
+
 * [שקרים עיקריים בתיק 4000, ממומחה בשוק התקשורת](https://www.facebook.com/permalink.php?story_fbid=2210744375892091&id=100008696496760)
 * [תיק 4000 תפור. לא ניסו להבין את המצב האמיתי](https://www.telecomnews.co.il/%D7%A1%D7%95%D7%93%D7%95%D7%AA-%D7%95%D7%A9%D7%A7%D7%A8%D7%99%D7%9D-%D7%91%D7%A4%D7%A8%D7%A7%D7%9C%D7%99%D7%98%D7%95%D7%AA-%D7%95%D7%94%D7%99%D7%95%D7%A2%D7%9E-%D7%A9-%D7%9E%D7%99-%D7%94%D7%99%D7%94-%D7%91-%D7%A0%D7%99%D7%92%D7%95%D7%93-%D7%A2%D7%A0%D7%99%D7%99%D7%A0%D7%99%D7%9D-%D7%91%D7%AA%D7%99%D7%A7-4000.html)
 * [תיק 4000 חסר שחר - צד ההטבות](https://www.facebook.com/bookfaceaddress/posts/10221178526835767)
@@ -55,7 +59,7 @@
 * [תגובת שמאלנית משפטנית](https://www.facebook.com/galgura/posts/2474931346111707)
 * [סיקור אוהד זה לא שוחד](https://www.globes.co.il/news/article.aspx?did=1001307983#utm_source=RSS)
 * [מה מספר תיק 4000 על בכירי וואלה. חזק](https://www.makorrishon.co.il/magazine/dyukan/187123/)
-* [הצעת החנינה אם ביבי יפרוש](https://www.facebook.com/permalink.php?story_fbid=2219486451684550&id=100008696496760)
+* [מיזוג בזק-יס אושר ב2005. חזק](https://www.youtube.com/watch?v=NXHpfWMzQ20)
 
 ## התאגידים
 
