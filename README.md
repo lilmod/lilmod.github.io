@@ -25,6 +25,10 @@
 * [מאמר מעולה של גלית דיסטל](https://www.facebook.com/galit.distalatbaryan/posts/2523752181085960)
 * [ארז תדמור על העסקה](https://www.facebook.com/erez.tadmor.9/posts/10156773614312109)
 
+### האם תוכנית המאה היא תעמולת בחירות של נתניהו?
+    
+* [ניקי היילי מדברת על עיתוי התכנית](https://twitter.com/MiriBarbi/status/1221472092417396738?s=20)
+
 ## הישג: כלכלת ישראל
 
 * [2020 זינוק בתוצר לנפש](https://www.gplanet.co.il/%d7%a1%d7%95%d7%93-%d7%94%d7%97%d7%93%d7%a8%d7%99%d7%9d-2020-%d7%99%d7%a9%d7%a8%d7%90%d7%9c-%d7%9e%d7%96%d7%a0%d7%a7%d7%aa-%d7%9c%d7%92%d7%91%d7%94%d7%99%d7%9d-%d7%97%d7%93%d7%a9%d7%99%d7%9d-%d7%95/)
@@ -119,6 +123,7 @@
 * [מסמנים מטרה](https://www.facebook.com/avi.weissmsc/posts/10158099336785312)
 * [2015: מנדלבליט טען שתפרו לו תיק](https://www.maariv.co.il/news/law/Article-691524)
 * [מינויים לא לגיטימיים התבצעו בפרקליטות](https://www.facebook.com/permalink.php?story_fbid=2240866776213184&id=100008696496760)
+* [הצד האפל של מערכת המשפט](https://www.facebook.com/danny.hendler/posts/10157923390242888)
 * [מדליפי הפרקליטות](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
 * [הפרקליטות וחיים רמון](https://www.facebook.com/bar.shlush.1/posts/3451261461580586)
 
@@ -134,10 +139,6 @@
 * [בית המשפט מגן על המיעוט?](https://www.facebook.com/bookfaceaddress/posts/10221285775596919)
 * [שלטון פקידים עדיף?](https://www.facebook.com/adi.benhur.35/posts/533133647526921)
 * [מכתב מחרדי לאהרון ברק. חזק](https://www.facebook.com/simcha.rothman/posts/10157705995869709)
-
-## האם תוכנית המאה היא תעמולת בחירות של נתניהו?
-    
-* [ניקי היילי מדברת על עיתוי התכנית](https://twitter.com/MiriBarbi/status/1221472092417396738?s=20)
 
 # התקשורת
 
