@@ -30,6 +30,7 @@
 * [מאמר מעולה של גלית דיסטל](https://www.facebook.com/galit.distalatbaryan/posts/2523752181085960)
 * [ארז תדמור על העסקה](https://www.facebook.com/erez.tadmor.9/posts/10156773614312109)
 * [כמו אוסלו? לא](https://www.facebook.com/photo.php?fbid=10158228628654916&set=a.10150472035429916&type=3)
+* [סוף עידן אוסלו. חזק](https://www.israelhayom.co.il/opinion/729199)
 
 ### האם תוכנית המאה היא תעמולת בחירות של נתניהו?
     
