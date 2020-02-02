@@ -91,6 +91,7 @@
 * [כחול לבן בעצם חייבית לציית לאחמד טיבי, יועצו של ערפאת](https://twitter.com/netanyahu/status/1216723202682105857)
 * [בני גנץ רוצה לממש את מדיניות אהוד ברק](https://twitter.com/GuyCamelmacher/status/1220095015134879753)
 * [ראיון עם עופר שלח](https://www.facebook.com/erez.tadmor.9/videos/10156651415852109/)
+* [גנץ חושב כמו יאיר גולן](https://twitter.com/mcl_bgn/status/1223739920268787712?s=20)
 
 # הפרקליטות ומערכת המשפט
 
