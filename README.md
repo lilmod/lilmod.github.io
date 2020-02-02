@@ -8,6 +8,9 @@
 
 ## איזה מין מנהיג ביבי?
 
+* [איך רואים מנהיגים אמריקאים את ביבי מול גנץ. חובה](https://twitter.com/MiriBarbi/status/1223620835153514496?s=20)
+* [חלק ב](https://twitter.com/MiriBarbi/status/1223621025105137664?s=20)
+
 * [ראש ממשלת קנדה לשעבר מדבר על נתניהו](https://twitter.com/Lidar_Yarin/status/1220808197730074626?s=20)
 * [פסל שעווה של ביבי הוקם ליד טראמפ ופוטין, ראשי מעצמות העולם](https://twitter.com/mohsaud08/status/1221805017172271104?s=20)
 * [זלמן שובל: אם ביבי יעזוב, זה יהיה נזק לישראל](https://www.facebook.com/permalink.php?story_fbid=2264143550552173&id=100008696496760)
@@ -76,6 +79,8 @@
 * לגנץ לכאורה יש חוסר יכולת מוחלט לדבר בפומבי, דבר שנחוץ מאוד לראש ממשלה.
 [למשל, הוא זקוק לשלשה טלפרומטרים](https://twitter.com/nachi_z9/status/1221154666085539840?s=20)
 * [מישהו היה נותן לבני גנץ לנהל לו את העסק?](https://www.0404.co.il/?p=530141&fbclid=IwAR0K4p4gv9veqg1yBstEYXCx9dy-EG3nbmosP_qlEcJHCcmuT6aYNtqH2HY)
+* [איך רואים מנהיגים אמריקאים את ביבי מול גנץ. חובה](https://twitter.com/MiriBarbi/status/1223620835153514496?s=20)
+* [חלק ב](https://twitter.com/MiriBarbi/status/1223621025105137664?s=20)
 
 ## האם כחול לבן היא מפלגה רצינית?
 
