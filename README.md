@@ -16,6 +16,7 @@
 * [זלמן שובל: אם ביבי יעזוב, זה יהיה נזק לישראל](https://www.facebook.com/permalink.php?story_fbid=2264143550552173&id=100008696496760)
 * [האסטרטגיה של ביבי](https://www.israelhayom.co.il/opinion/729247)
 * [ראיון מקיף עם ביבי](https://www.facebook.com/watch/?ref=saved&v=487870205459997)
+* [(ביבי מדבר בגיל 28 (תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
 
 ## הישג: שיפור יחסים עם העולם הערבי
 
