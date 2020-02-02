@@ -70,6 +70,9 @@
 * [איך כוללים אויבים פוליטים בתור עדים?](https://www.facebook.com/permalink.php?story_fbid=2217751151858080&id=100008696496760)
 * [איך כוללים את עורך הדין של ביבי ברשימת העדים?](https://www.facebook.com/permalink.php?story_fbid=2217550305211498&id=100008696496760)
 
+## אכיפה בררנית
+* [כבר 3 שנים מנדלבליט לא חוקר יחסי תן וקח בין לפיד לנוני מוזס](https://twitter.com/SarcasmusAngel/status/1223681688338866176?s=20)
+
 ## כתב האישום
 * [כתב אישום לא לגיטימי](https://twitter.com/GadiTaub1/status/1223125369487810560)
 
