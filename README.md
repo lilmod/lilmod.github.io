@@ -96,6 +96,7 @@
 * [איך רואים מנהיגים אמריקאים את ביבי מול גנץ. חובה](https://twitter.com/MiriBarbi/status/1223620835153514496?s=20)
 * [חלק ב](https://twitter.com/MiriBarbi/status/1223621025105137664?s=20)
 * ["בני מפגין את "חכמתו](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
+* [אפס מנהיגות](https://twitter.com/EstreicherSarit/status/1224371433473814532?s=20)
 * [גנץ תקף את ביבי: אם הייתי שם, לא הייתי זז... אבל](https://twitter.com/mcl_bgn/status/1223739920268787712?s=20)
 
 ## האם כחול לבן היא מפלגה רצינית?
