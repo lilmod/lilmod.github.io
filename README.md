@@ -156,6 +156,7 @@
 ## שחיתות במערכת בתי המשפט
 
 * [מינוי קרובים של ברק](https://www.facebook.com/permalink.php?story_fbid=2219134361719759&id=100008696496760)
+* [להגיש כתבי אישום נגד שופטים סורחים](https://m.news1.co.il/ArticlePage.aspx?docid=96460&subjectid=3)
 
 ## האם לרשות השופטת יש כח מופרז?
 
