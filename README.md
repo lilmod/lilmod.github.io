@@ -107,6 +107,7 @@
 * [גנץ חושב כמו יאיר גולן](https://twitter.com/mcl_bgn/status/1223739920268787712?s=20)
 * [איימן עודה לא יתן לגנץ לספח](https://twitter.com/AmalyaDuek/status/1223557201169731584)
 * [מה כחל"ב יעשו שונה בעזה? שום דבר](https://twitter.com/amit_segal/status/1224314763154460672?s=20)
+* [הרשות רוצה את כחל"ב בשלטון](https://twitter.com/amit_segal/status/1224314763154460672?s=20)
 
 # הפרקליטות ומערכת המשפט
 
