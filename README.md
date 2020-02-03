@@ -79,6 +79,7 @@
 
 ## כתב האישום
 * [כתב אישום לא לגיטימי](https://twitter.com/GadiTaub1/status/1223125369487810560)
+* [רשימת ליקויים](https://twitter.com/talia_einhorn/status/1224416719239892993?s=20)
 * [כתב אישום פגום](https://www.news1.co.il/Archive/0026-D-138966-00.html)
 * [המדינה לא מוכנה בכלל](https://twitter.com/keslasy/status/1224290228237688834)
 
