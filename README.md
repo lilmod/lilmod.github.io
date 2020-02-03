@@ -84,6 +84,7 @@
 # כחול לבן ובני גנץ
 
 * [מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
+* [אנשים ללא מנהיגות](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
 
 ## האם בני גנץ מתאים לתפקיד ראשות ממשלה?
     
