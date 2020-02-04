@@ -18,7 +18,7 @@
 * [מדינאי ענק](https://twitter.com/ayeletsl/status/1224419208563449857?s=20)
 * [האסטרטגיה של ביבי](https://www.israelhayom.co.il/opinion/729247)
 * [ראיון מקיף עם ביבי](https://www.facebook.com/watch/?ref=saved&v=487870205459997)
-* [(ביבי מדבר בגיל 28 (תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
+* [ביבי מדבר בגיל 28 - תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
 
 ## הישג: שיפור יחסים עם העולם הערבי
 
