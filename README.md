@@ -91,6 +91,7 @@
 * [מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
 * [אנשים ללא מנהיגות](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
 * [כחול לבן יקימו ממשלה עם המשותפת, תומכי מחבלים](https://twitter.com/adhalperin/status/1224393709795598344?s=20)
+* [כחול לבן אמרו שהם נגד שחיתות, אבל אישרו חסינות לחיים כץ, שבאמת מושחת](https://twitter.com/ronitlev12/status/1224772707310501888)
 
 ## האם בני גנץ מתאים לתפקיד ראשות ממשלה?
     
