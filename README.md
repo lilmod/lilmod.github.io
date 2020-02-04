@@ -18,6 +18,7 @@
 * [מדינאי ענק](https://twitter.com/ayeletsl/status/1224419208563449857?s=20)
 * [האסטרטגיה של ביבי](https://www.israelhayom.co.il/opinion/729247)
 * [ראיון מקיף עם ביבי](https://www.facebook.com/watch/?ref=saved&v=487870205459997)
+* [ביבי על דברים שהיו קשים להשגה](https://twitter.com/c_shlomit/status/1224799923364880386?s=20)
 * [ביבי מדבר בגיל 28 - תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
 
 ## הישג: שיפור יחסים עם העולם הערבי
@@ -129,7 +130,8 @@
 * [אפס מנהיגות](https://twitter.com/EstreicherSarit/status/1224371433473814532?s=20)
 * [גנץ תקף את ביבי: אם הייתי שם, לא הייתי זז... אבל](https://twitter.com/mcl_bgn/status/1223739920268787712?s=20)
 * [קיר ואבנים](https://twitter.com/YanivTurgi/status/1211599161075875840)
-* [גנץ ישב בראש חברת המימד החמישי, שהונתה את המשטרה. אין לא מושג אפילו מה קרה לחברה בסוף](https://twitter.com/nisimshery/status/1161600580999110656?s=20)
+* [גנץ ישב בראש חברת המימד החמישי, שהונתה את המשטרה. אין לו מושג אפילו מה קרה לחברה בסוף](https://twitter.com/nisimshery/status/1161600580999110656?s=20)
+* [פעם אחר פעם, גנץ מפגין חוסר יכולת לדבר עניינית](https://twitter.com/adforbb/status/1224761269258944513?s=20)
 
 ## האם כחול לבן היא מפלגה רצינית?
 
