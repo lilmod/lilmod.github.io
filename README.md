@@ -104,6 +104,7 @@
 * [כבר 3 שנים מנדלבליט לא חוקר יחסי תן וקח בין לפיד לנוני מוזס](https://twitter.com/SarcasmusAngel/status/1223681688338866176?s=20)
 
 ## כתב האישום
+
 * [כתב אישום לא לגיטימי](https://twitter.com/GadiTaub1/status/1223125369487810560)
 * [רשימת ליקויים](https://twitter.com/talia_einhorn/status/1224416719239892993?s=20)
 * [כתב אישום פגום](https://www.news1.co.il/Archive/0026-D-138966-00.html)
@@ -142,6 +143,7 @@
 * [כחול לבן בעצם חייבית לציית לאחמד טיבי, יועצו של ערפאת](https://twitter.com/netanyahu/status/1216723202682105857)
 * [בני גנץ רוצה לממש את מדיניות אהוד ברק](https://twitter.com/GuyCamelmacher/status/1220095015134879753)
 * [ראיון עם עופר שלח](https://www.facebook.com/erez.tadmor.9/videos/10156651415852109/)
+* [ריבונות או התנתקות? חזק](https://twitter.com/igal_malka/status/1224792376356589569?s=20)
 * [גנץ חושב כמו יאיר גולן](https://twitter.com/mcl_bgn/status/1223739920268787712?s=20)
 * [איימן עודה לא יתן לגנץ לספח](https://twitter.com/AmalyaDuek/status/1223557201169731584)
 * [מה כחל"ב יעשו שונה בעזה? שום דבר](https://twitter.com/amit_segal/status/1224314763154460672?s=20)
