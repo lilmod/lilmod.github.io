@@ -128,6 +128,7 @@
 * [אורנה בן דור. חשוב מאוד!](https://www.youtube.com/watch?time_continue=27&v=mBq89GBHs5g&feature=emb_logo)
 * [דיון מעולה על מערכת המשפט ואיך לתקנה. חובה](https://www.facebook.com/tzir60/videos/2584201028572385/)
 * [העליון מערכת סגורה. הפרקליטות מקולקלת](https://www.zman.co.il/76890/)
+* [ריבלין: הפרקליטות תופרת תיקים](https://www.youtube.com/watch?v=xm9zGmyc8M0&feature=share&fbclid=IwAR0rCUIyQRq51uGnYQwSy54z0pvRUEo-woNvlQyk11qVkQPcYCH2kTKGXR8)
 
 ## היועץ המשפטי
 
