@@ -19,7 +19,8 @@
 * [האסטרטגיה של ביבי](https://www.israelhayom.co.il/opinion/729247)
 * [ראיון מקיף עם ביבי](https://www.facebook.com/watch/?ref=saved&v=487870205459997)
 * [ביבי על דברים שהיו קשים להשגה](https://twitter.com/c_shlomit/status/1224799923364880386?s=20)
-* [ביבי מדבר בגיל 28 - תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
+* [ביבי מדבר על המצב, הבחירות, גנץ](https://www.facebook.com/Netanyahu/videos/1599901740147980/)
+* [ביבי בגיל 28 - תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
 
 ## הישג: שיפור יחסים עם העולם הערבי
 
