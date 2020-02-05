@@ -129,6 +129,7 @@
 * [חלק ב](https://twitter.com/MiriBarbi/status/1223621025105137664?s=20)
 * ["בני מפגין את "חכמתו](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
 * [אפס מנהיגות](https://twitter.com/EstreicherSarit/status/1224371433473814532?s=20)
+* [לא מעכל מידע טוב](https://twitter.com/ramieshel/status/1225135988890050566?s=20)
 * [גנץ תקף את ביבי: אם הייתי שם, לא הייתי זז... אבל](https://twitter.com/mcl_bgn/status/1223739920268787712?s=20)
 * [קיר ואבנים](https://twitter.com/YanivTurgi/status/1211599161075875840)
 * [הונאת המימד החמישי](https://twitter.com/Tsahihagag/status/1225047770513453056?s=20)
