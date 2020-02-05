@@ -130,6 +130,7 @@
 * [אפס מנהיגות](https://twitter.com/EstreicherSarit/status/1224371433473814532?s=20)
 * [גנץ תקף את ביבי: אם הייתי שם, לא הייתי זז... אבל](https://twitter.com/mcl_bgn/status/1223739920268787712?s=20)
 * [קיר ואבנים](https://twitter.com/YanivTurgi/status/1211599161075875840)
+* [הונאת המימד החמישי](https://twitter.com/Tsahihagag/status/1225047770513453056?s=20)
 * [גנץ ישב בראש חברת המימד החמישי, שהונתה את המשטרה. אין לו מושג אפילו מה קרה לחברה בסוף](https://twitter.com/nisimshery/status/1161600580999110656?s=20)
 * [פעם אחר פעם, גנץ מפגין חוסר יכולת לדבר עניינית](https://twitter.com/adforbb/status/1224761269258944513?s=20)
 
