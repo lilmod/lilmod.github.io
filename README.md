@@ -147,6 +147,7 @@
 * [יאיר לפיד שיקר שהסבתא שלו מתה באושוויץ](https://www.srugim.co.il/239962-%D7%9E%D7%91%D7%99%D7%9A-%D7%94%D7%90%D7%9D-%D7%99%D7%90%D7%99%D7%A8-%D7%9C%D7%A4%D7%99%D7%93-%D7%A0%D7%AA%D7%A4%D7%A1-%D7%91%D7%A9%D7%A7%D7%A8-%D7%94%D7%A1%D7%98%D7%95%D7%A8%D7%99-%D7%A6%D7%A4?fbclid=IwAR37xcWqxJjrFOGDpH82OkLQQpPDj8TcDt-FBtB6G6OBWS7w7PtxxIiLE9M)
 * [בן דוד של יאיר לפיד אומר שאף אחד במשפחה לא מצביע לו. חזק](https://twitter.com/mm09957/status/1223771978940780545?s=20)
 * [בתגובה , יאיר לפיד שיקר שאין לו בני דודים בכלל](https://twitter.com/ramieshel/status/1224391335194583040?s=20)
+* [המצע הכלכלי של כחול לבן, לעומת השר אוחנה](https://www.facebook.com/photo.php?fbid=10157786445626768&set=a.411182811767&type=3&theater)
 
 ## מהן העמדות של כחול לבן?
 
