@@ -117,6 +117,7 @@
 
 # כחול לבן ובני גנץ
 
+* [שמאל בלבוש ימין](https://mida.org.il/2019/03/31/%D7%A2%D7%95%D7%A7%D7%A5-%D7%AA%D7%95%D7%A6%D7%A8%D7%AA-%D7%9B%D7%97%D7%95%D7%9C-%D7%9C%D7%91%D7%9F/)
 * [מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
 * [אנשים ללא מנהיגות](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
 * [כחול לבן יקימו ממשלה עם המשותפת, תומכי מחבלים](https://twitter.com/adhalperin/status/1224393709795598344?s=20)
