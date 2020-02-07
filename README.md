@@ -180,6 +180,7 @@
 * [כתב אישום לא לגיטימי](https://twitter.com/GadiTaub1/status/1223125369487810560)
 * [מדוע מנדלבליט נאבק במינוי? כי כל התיק נגד ביבי היב בעיתי](https://www.israelhayom.co.il/article/730083)
 * [אילה חסון: דן אלדד ראה את מנדלבליט במלוא מערומיו](https://rotter.net/forum/scoops1/601781.shtml?utm_source=rotter.net&utm_medium=mivzakside)
+* [מכתב על מינוי אלדד (שמנדלבליט קבע שיש נגדו בעיה משפטית). חושף את עליבות היועץ](https://twitter.com/yotambarnoy/status/1225790704082751488?s=20)
 * [סיקור אוהד למנדלבליט](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
 
 ## פרקליט המדינה
