@@ -21,6 +21,7 @@
 * [ביבי על דברים שהיו קשים להשגה](https://twitter.com/c_shlomit/status/1224799923364880386?s=20)
 * [ביבי מדבר על המצב, הבחירות, גנץ](https://www.facebook.com/Netanyahu/videos/1599901740147980/)
 * [ביבי בגיל 28 - תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
+* [יועצת לענייני עסקים קטנים](https://www.facebook.com/Netanyahu/videos/578755389397115/)
 
 ## הישג: שיפור יחסים עם העולם הערבי
 
