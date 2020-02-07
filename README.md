@@ -140,12 +140,16 @@
 * [לא מעכל מידע טוב](https://twitter.com/ramieshel/status/1225135988890050566?s=20)
 * [גנץ תקף את ביבי: אם הייתי שם, לא הייתי זז... אבל](https://twitter.com/mcl_bgn/status/1223739920268787712?s=20)
 * [קיר ואבנים](https://twitter.com/YanivTurgi/status/1211599161075875840)
-* [הונאת המימד החמישי](https://twitter.com/Tsahihagag/status/1225047770513453056?s=20)
-* [גנץ ישב בראש חברת המימד החמישי, שהונתה את המשטרה. אין לו מושג אפילו מה קרה לחברה בסוף](https://twitter.com/nisimshery/status/1161600580999110656?s=20)
 * [לגנץ אין מה להגיד על זה שאולמרט מפגין עם אבו מאזן נגד תכנית המאה](https://www.facebook.com/noam.fathi/posts/10157239094938519)
-* [המשטרה ידעה שאין לקוחות, ונתנה למימד החמישי בלי מכרז](https://www.facebook.com/permalink.php?story_fbid=2274370502862811&id=100008696496760)
 * [פעם אחר פעם, גנץ מפגין חוסר יכולת לדבר עניינית](https://twitter.com/adforbb/status/1224761269258944513?s=20)
 * [גנץ צנוע? פייק](https://www.facebook.com/photo.php?fbid=2537619173032594&set=a.1016750991786094&type=3)
+
+## מה הסיפור של בני גנץ והמימד החמישי?
+
+* [הפרשה בכלל לא נחקרה. חזק](https://www.youtube.com/watch?v=qk2Nv9W6pLA&feature=youtu.be&fbclid=IwAR1b3ZNJ5qninJOgYDofMUbm6Q2VC8CMdXwJebmngB8FwObwQKgT9P_-2_s)
+* [הונאת המימד החמישי](https://twitter.com/Tsahihagag/status/1225047770513453056?s=20)
+* [לגנץ אין מושג אפילו מה קרה לחברה בסוף](https://twitter.com/nisimshery/status/1161600580999110656?s=20)
+* [המשטרה ידעה שאין לקוחות, ונתנה למימד החמישי בלי מכרז](https://www.facebook.com/permalink.php?story_fbid=2274370502862811&id=100008696496760)
 
 ## האם כחול לבן היא מפלגה רצינית?
 
