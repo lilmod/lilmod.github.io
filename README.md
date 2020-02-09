@@ -246,6 +246,7 @@
 
 * [מינוי קרובים של ברק](https://www.facebook.com/permalink.php?story_fbid=2219134361719759&id=100008696496760)
 * [להגיש כתבי אישום נגד שופטים סורחים](https://m.news1.co.il/ArticlePage.aspx?docid=96460&subjectid=3)
+* [סרטון על מינוי שופטים](https://twitter.com/Meshilut/status/1226598593592688642?s=20)
 
 ## האם לרשות השופטת יש כח מופרז?
 
@@ -267,6 +268,8 @@
 * [בג"ץ קובע כי מילה נשית היא עילה לפליטות, מה שהופך את כל נשות מצרים לפליטים](https://twitter.com/yonimdm/status/1226515337690124289?s=20)
 * [בג"ץ מנע ממנהל מקרקעי ישראל להפשיר קרקעות, ובכך גרם למחסור בדירות](https://www.youtube.com/watch?v=Z8GPkDvN5Vg)
 * [בג"ץ מבטל את פסילת יזבק להתמודדות בבחירות](https://twitter.com/0404news/status/1226564780946841600?s=20)
+* [סרטון על מינוי שופטים](https://twitter.com/Meshilut/status/1226598593592688642?s=20)
+
 
 # ליברמן
 
