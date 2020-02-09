@@ -161,7 +161,6 @@
 [למשל, הוא זקוק לשלשה טלפרומטרים](https://twitter.com/nachi_z9/status/1221154666085539840?s=20)
 * [איך רואים מנהיגים אמריקאים את ביבי מול גנץ. חובה](https://twitter.com/MiriBarbi/status/1223620835153514496?s=20)
 * [חלק ב](https://twitter.com/MiriBarbi/status/1223621025105137664?s=20)
-* ["בני מפגין את "חכמתו](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
 * [אפס מנהיגות](https://twitter.com/EstreicherSarit/status/1224371433473814532?s=20)
 * [לא מעכל מידע טוב](https://twitter.com/ramieshel/status/1225135988890050566?s=20)
 * [גנץ תקף את ביבי: אם הייתי שם, לא הייתי זז... אבל](https://twitter.com/mcl_bgn/status/1223739920268787712?s=20)
