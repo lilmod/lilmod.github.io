@@ -140,7 +140,7 @@
 * [מישהו היה נותן לבני גנץ לנהל לו את העסק?](https://www.0404.co.il/?p=530141&fbclid=IwAR0K4p4gv9veqg1yBstEYXCx9dy-EG3nbmosP_qlEcJHCcmuT6aYNtqH2HY)
 * [איך רואים מנהיגים אמריקאים את ביבי מול גנץ. חובה](https://twitter.com/MiriBarbi/status/1223620835153514496?s=20)
 * [חלק ב](https://twitter.com/MiriBarbi/status/1223621025105137664?s=20)
-* [גנץ היה מנוף לתכנית הנסיגה](https://twitter.com/Vitaliko/status/1226113323634241536?s=20)
+* [גנץ היה מנוף לתכנית הנסיגה ושיתף פעולה עם אובמה נגד הדרג המדיני](https://twitter.com/Vitaliko/status/1226113323634241536?s=20)
 * ["בני מפגין את "חכמתו](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
 * [אפס מנהיגות](https://twitter.com/EstreicherSarit/status/1224371433473814532?s=20)
 * [לא מעכל מידע טוב](https://twitter.com/ramieshel/status/1225135988890050566?s=20)
