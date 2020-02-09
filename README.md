@@ -151,6 +151,7 @@
 * [מישהו היה נותן לבני גנץ לנהל לו את העסק?](https://www.0404.co.il/?p=530141&fbclid=IwAR0K4p4gv9veqg1yBstEYXCx9dy-EG3nbmosP_qlEcJHCcmuT6aYNtqH2HY)
 
 ### אולמרט, יועצו של גנץ
+* [אולמרט מתפקד כיועץ של גנץ](https://twitter.com/ohana_israel/status/1226443747182940160?s=20)
 * [שולה זקן על אולמרט, שמייעץ לגנץ. חזק מאוד. מ22:30](https://twitter.com/mcl_bgn/status/1226422499124154369?s=20)
 * [לגנץ אין מה להגיד על זה שאולמרט מפגין עם אבו מאזן נגד תכנית המאה](https://www.facebook.com/noam.fathi/posts/10157239094938519)
 
@@ -192,7 +193,8 @@
 * [איימן עודה לא יתן לגנץ לספח](https://twitter.com/AmalyaDuek/status/1223557201169731584)
 * [מה כחל"ב יעשו שונה בעזה? שום דבר](https://twitter.com/amit_segal/status/1224314763154460672?s=20)
 * [הרשות רוצה את כחל"ב בשלטון](https://twitter.com/amit_segal/status/1224314763154460672?s=20)
-* [אולמרט מתפקד כיועץ של גנץ](https://twitter.com/ohana_israel/status/1226443747182940160?s=20)
+* [למה בוחרי כחול לבן והרשות רוצים אותו דבר?](https://twitter.com/michael_dvorin/status/1226051393523474432?s=20)
+
 
 # הפרקליטות ומערכת המשפט
 
