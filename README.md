@@ -144,6 +144,7 @@
 * [גנץ תקף את ביבי: אם הייתי שם, לא הייתי זז... אבל](https://twitter.com/mcl_bgn/status/1223739920268787712?s=20)
 * [קיר ואבנים](https://twitter.com/YanivTurgi/status/1211599161075875840)
 * [לגנץ אין מה להגיד על זה שאולמרט מפגין עם אבו מאזן נגד תכנית המאה](https://www.facebook.com/noam.fathi/posts/10157239094938519)
+* [שולה זקן על אולמרט, שמייעץ לגנץ. חזק מאוד. מ22:30](https://twitter.com/mcl_bgn/status/1226422499124154369?s=20)
 * [פעם אחר פעם, גנץ מפגין חוסר יכולת לדבר עניינית](https://twitter.com/adforbb/status/1224761269258944513?s=20)
 * [בני באג. חזק](https://m.news1.co.il/ArticlePage.aspx?docid=138403&subjectid=26)
 * [מה שביבי עושה ביממה גנץ לא מסוגל בכלל לעשות](https://twitter.com/c_shlomit/status/1226271731901489152?s=20)
