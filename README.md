@@ -123,7 +123,7 @@
 
 # כחול לבן ובני גנץ
 
-* [חבורת כשלונות. חזק מאוד](https://twitter.com/galidalal/status/1226366099052253185?s=20)
+* [חבורת כשלונות. גנץ סיכן חיילים. חזק מאוד](https://twitter.com/galidalal/status/1226366099052253185?s=20)
 * [שמאל בלבוש ימין](https://mida.org.il/2019/03/31/%D7%A2%D7%95%D7%A7%D7%A5-%D7%AA%D7%95%D7%A6%D7%A8%D7%AA-%D7%9B%D7%97%D7%95%D7%9C-%D7%9C%D7%91%D7%9F/)
 * [מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
 * [אנשים ללא מנהיגות](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
@@ -134,6 +134,7 @@
 ## האם בני גנץ מתאים לתפקיד ראשות ממשלה?
     
 * [חיוני: תפקודו של גנץ. לשמוע עד הסוף](https://www.facebook.com/GaleyIsrael/videos/369660013721104/)
+* [גנץ סיכן חיילים. חזק מאוד](https://twitter.com/galidalal/status/1226366099052253185?s=20)
 * לגנץ לכאורה יש חוסר יכולת מוחלט לדבר בפומבי, דבר שנחוץ מאוד לראש ממשלה.
 [למשל, הוא זקוק לשלשה טלפרומטרים](https://twitter.com/nachi_z9/status/1221154666085539840?s=20)
 * [מישהו היה נותן לבני גנץ לנהל לו את העסק?](https://www.0404.co.il/?p=530141&fbclid=IwAR0K4p4gv9veqg1yBstEYXCx9dy-EG3nbmosP_qlEcJHCcmuT6aYNtqH2HY)
