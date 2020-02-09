@@ -216,6 +216,7 @@
 * [מכתב על מינוי אלדד (שמנדלבליט קבע שיש נגדו בעיה משפטית). חושף את עליבות היועץ](https://twitter.com/yotambarnoy/status/1225790704082751488?s=20)
 * [נחשף הבלוף](https://www.israelhayom.co.il/article/731541?utm_source=FACEBOOK&utm_medium=share&utm_campaign=IHNewApp&fbclid=IwAR2CHnpPdESeybL25t0V8-8FoABnSzSZJpVeM2H-bCsTZ5gKDf0ghFwskmA)
 * [סיקור אוהד למנדלבליט](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
+* [מנדלבליט מתנגד להעלאת יהודים מאתיופיה](https://twitter.com/netanelgla/status/1226599357765562369?s=20)
 
 ## פרקליט המדינה
 
