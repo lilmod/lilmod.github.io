@@ -163,6 +163,7 @@
 
 * [שלל עמדות. חזק](https://www.facebook.com/yossidavidovd/videos/2920900504638007/)
 * [כחול לבן בעצם חייבית לציית לאחמד טיבי, יועצו של ערפאת](https://twitter.com/netanyahu/status/1216723202682105857)
+* [אחמד טיבי, למשל](https://twitter.com/Michael50616567/status/1226498560142823437?s=20)
 * [בני גנץ רוצה לממש את מדיניות השמאל הקיצוני](https://twitter.com/GuyCamelmacher/status/1220095015134879753)
 * [ראיון עם עופר שלח](https://www.facebook.com/erez.tadmor.9/videos/10156651415852109/)
 * [ריבונות או התנתקות? חזק](https://twitter.com/igal_malka/status/1224792376356589569?s=20)
@@ -171,6 +172,7 @@
 * [איימן עודה לא יתן לגנץ לספח](https://twitter.com/AmalyaDuek/status/1223557201169731584)
 * [מה כחל"ב יעשו שונה בעזה? שום דבר](https://twitter.com/amit_segal/status/1224314763154460672?s=20)
 * [הרשות רוצה את כחל"ב בשלטון](https://twitter.com/amit_segal/status/1224314763154460672?s=20)
+* [אולמרט מתפקד כיועץ של גנץ](https://twitter.com/ohana_israel/status/1226443747182940160?s=20)
 
 # הפרקליטות ומערכת המשפט
 
@@ -237,7 +239,7 @@
 * [ליברמן מדבר על גיוס חרדים, אך לשכתו סחרה פטורים לחרדים מקושרים](https://twitter.com/AronRabino1/status/1224196700144918529)
 * [ההונאה הגדולה של ליברמן](https://www.facebook.com/photo.php?fbid=10158148963283912&set=a.10150182766703912&type=3&theater)
 
-# יוקר המחיה
+# המצב בארץ
 
 ## מחירי נדל"ן
 
@@ -246,6 +248,11 @@
 שזה עוד אפקט של החלטת בג"צ כוחנית.
 * [סרטון קצר על הנושא](https://www.youtube.com/watch?v=Z8GPkDvN5Vg)
 * סיפוח הבקעה והיישובים לפי תכנית המאה עלול להוריד בהרבה את מחירי הדירות.
+
+## מערכת הבריאות
+
+* [המצב מצוין לפי יעל גרמן מכחל"ב](https://twitter.com/ayeletsl/status/1226523224399319041?s=20)
+* [מערכת הבריאות במצב מצוין](https://www.maariv.co.il/amp/journalists/Article-687269?__twitter_impression=true)
 
 # התקשורת
 
