@@ -296,5 +296,6 @@
 
 * [מדליפי הפרקליטות](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
 * [סיקור אוהד למנדלבליט](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
+* [התקשורת בארץ היא ברובה ארגון תעמולה לשמאל. דוגמא](https://twitter.com/hananamiur/status/1226209922800594944?s=20)
 
 </div>
