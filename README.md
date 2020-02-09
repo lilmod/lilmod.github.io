@@ -21,7 +21,9 @@
 * [ביבי על דברים שהיו קשים להשגה](https://twitter.com/c_shlomit/status/1224799923364880386?s=20)
 * [ביבי מדבר על המצב, הבחירות, גנץ](https://www.facebook.com/Netanyahu/videos/1599901740147980/)
 * [ביבי בגיל 28 - תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
-* [יועצת לענייני עסקים קטנים](https://www.facebook.com/Netanyahu/videos/578755389397115/)
+* [מה שביבי עושה ביממה גנץ לא מסוגל בכלל לעשות](https://twitter.com/c_shlomit/status/1226271731901489152?s=20)
+* [עמידה בלחצים](https://twitter.com/netanyahu/status/1226457962883010560?s=20)
+
 
 ## הישג: שיפור יחסים עם העולם הערבי
 
@@ -51,6 +53,7 @@
 * [שעורי האבטלה לטווח ארוך](https://twitter.com/LiberalRiWo/status/1221487495386488832?s=20)
 * [אבטלה של 3.4%](https://www.globes.co.il/news/article.aspx?did=1001316761)
 * [המצב בתקשורת לעומת המציאות](https://www.facebook.com/watch/?v=2312068642231275)
+* [יועצת לענייני עסקים קטנים](https://www.facebook.com/Netanyahu/videos/578755389397115/)
 
 ## הישג: ביטול הסכם הגרעין ובידוד איראן
 
@@ -142,7 +145,10 @@
 * [קיר ואבנים](https://twitter.com/YanivTurgi/status/1211599161075875840)
 * [לגנץ אין מה להגיד על זה שאולמרט מפגין עם אבו מאזן נגד תכנית המאה](https://www.facebook.com/noam.fathi/posts/10157239094938519)
 * [פעם אחר פעם, גנץ מפגין חוסר יכולת לדבר עניינית](https://twitter.com/adforbb/status/1224761269258944513?s=20)
+* [בני באג. חזק](https://m.news1.co.il/ArticlePage.aspx?docid=138403&subjectid=26)
+* [מה שביבי עושה ביממה גנץ לא מסוגל בכלל לעשות](https://twitter.com/c_shlomit/status/1226271731901489152?s=20)
 * [גנץ צנוע? פייק](https://www.facebook.com/photo.php?fbid=2537619173032594&set=a.1016750991786094&type=3)
+* [בעיות בתקשור בסיסי](https://twitter.com/gaby111153/status/1226144542950412288?s=20)
 
 ## מה הסיפור של בני גנץ והמימד החמישי?
 
@@ -251,8 +257,10 @@
 
 ## מערכת הבריאות
 
-* [המצב מצוין לפי יעל גרמן מכחל"ב](https://twitter.com/ayeletsl/status/1226523224399319041?s=20)
 * [מערכת הבריאות במצב מצוין](https://www.maariv.co.il/amp/journalists/Article-687269?__twitter_impression=true)
+* [נתוני בריאות. חזק](https://twitter.com/LiberalRiWo/status/1226403013054619649?s=20)
+* [דרוגי בריאות](https://twitter.com/mcl_bgn/status/1226455192851427328?s=20)
+* [המצב מצוין לפי יעל גרמן מכחל"ב](https://twitter.com/ayeletsl/status/1226523224399319041?s=20)
 
 # התקשורת
 
