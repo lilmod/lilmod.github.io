@@ -146,6 +146,7 @@
 * [הונאת המימד החמישי](https://twitter.com/Tsahihagag/status/1225047770513453056?s=20)
 * [לגנץ אין מושג אפילו מה קרה לחברה בסוף](https://twitter.com/nisimshery/status/1161600580999110656?s=20)
 * [המשטרה ידעה שאין לקוחות, ונתנה למימד החמישי בלי מכרז](https://www.facebook.com/permalink.php?story_fbid=2274370502862811&id=100008696496760)
+* [לא היתה בו שום בשורה](https://twitter.com/mcl_bgn/status/1226060047719026688?s=20)
 * [מישהו היה נותן לבני גנץ לנהל לו את העסק?](https://www.0404.co.il/?p=530141&fbclid=IwAR0K4p4gv9veqg1yBstEYXCx9dy-EG3nbmosP_qlEcJHCcmuT6aYNtqH2HY)
 
 ### אולמרט, יועצו של גנץ
