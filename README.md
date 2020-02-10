@@ -205,6 +205,7 @@
 * [דיון מעולה על מערכת המשפט ואיך לתקנה. חובה](https://www.facebook.com/tzir60/videos/2584201028572385/)
 * [העליון מערכת סגורה. הפרקליטות מקולקלת](https://www.zman.co.il/76890/)
 * [ריבלין: הפרקליטות תופרת תיקים](https://www.youtube.com/watch?v=xm9zGmyc8M0&feature=share&fbclid=IwAR0rCUIyQRq51uGnYQwSy54z0pvRUEo-woNvlQyk11qVkQPcYCH2kTKGXR8)
+* [ניגוד עניינים. חזק](https://twitter.com/Lazy_Mustang/status/1215611953537830912?s=20)
 
 ## היועץ המשפטי
 
