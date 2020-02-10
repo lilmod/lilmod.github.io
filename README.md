@@ -23,6 +23,7 @@
 * [ביבי בגיל 28 - תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
 * [מה שביבי עושה ביממה גנץ לא מסוגל בכלל לעשות](https://twitter.com/c_shlomit/status/1226271731901489152?s=20)
 * [עמידה בלחצים](https://twitter.com/netanyahu/status/1226457962883010560?s=20)
+* [ראיון מעולה עם אחיו של ביבי](https://www.israelhayom.co.il/article/721005?fbclid=IwAR1RnOgNo2kTV-RB6Ld5yThj0febm6Vb3lJF-6yjULFwxniel_2b7g6j2lQ)
 
 
 ## הישג: שיפור יחסים עם העולם הערבי
@@ -42,10 +43,7 @@
 * [כמו אוסלו? לא](https://www.facebook.com/photo.php?fbid=10158228628654916&set=a.10150472035429916&type=3)
 * [סוף עידן אוסלו. חזק](https://www.israelhayom.co.il/opinion/729199)
 * [פרופ' איינהורן על ההישג](https://twitter.com/talia_einhorn/status/1226618975720747008?s=20)
-* [פרספקטיבה](https://twitter.com/liorhararilikud/status/1226562932206702597?s=20)
-
-### האם תוכנית המאה היא תעמולת בחירות של נתניהו?
-    
+* [פרספקטיבה](https://twitter.com/liorhararilikud/status/1226562932206702597?s=20)    
 * [ניקי היילי מדברת על עיתוי התכנית](https://twitter.com/MiriBarbi/status/1221472092417396738?s=20)
 
 ## הישג: כלכלת ישראל
@@ -80,10 +78,6 @@
 ובהרצת הזמן עד תום הקדנציות של אובמה.
 * [חזק מאוד](https://twitter.com/nisimshery/status/1161600580999110656?s=20)
 * למזלנו, הנשיא הבא, טראמפ, הינו הנשיא הכי פרו-ישראלי שהיה אי פעם.
-
-## האם ביבי מושחת?
-
-* [ראיון מעולה עם אחיו של ביבי](https://www.israelhayom.co.il/article/721005?fbclid=IwAR1RnOgNo2kTV-RB6Ld5yThj0febm6Vb3lJF-6yjULFwxniel_2b7g6j2lQ)
 
 # התיקים
 
@@ -176,6 +170,7 @@
 * [מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
 * [אנשים ללא מנהיגות](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
 * [כחול לבן יקימו ממשלה עם המשותפת, תומכי מחבלים](https://twitter.com/adhalperin/status/1224393709795598344?s=20)
+* [בלי המשותפת אין לכחול לבן ממשלה](https://twitter.com/Likud_Party/status/1226736852218056705?s=20)
 * [כחול לבן אמרו שהם נגד שחיתות, אבל אישרו חסינות לחיים כץ, שבאמת מושחת](https://twitter.com/ronitlev12/status/1224772707310501888)
 
 ## יכולות צבאיות?
