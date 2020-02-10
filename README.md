@@ -123,28 +123,18 @@
 * [כתב אישום פגום](https://www.news1.co.il/Archive/0026-D-138966-00.html)
 * [המדינה לא מוכנה בכלל](https://twitter.com/keslasy/status/1224290228237688834)
 
-# כחול לבן ובני גנץ
+# בני גנץ
 
-* [חבורת כשלונות. גנץ סיכן חיילים. חזק מאוד](https://twitter.com/galidalal/status/1226366099052253185?s=20)
-* [שרון הבין שגנץ סירס את הצבא](https://twitter.com/theShimon1/status/1225945182539046912?s=20)
-* [שמאל בלבוש ימין](https://mida.org.il/2019/03/31/%D7%A2%D7%95%D7%A7%D7%A5-%D7%AA%D7%95%D7%A6%D7%A8%D7%AA-%D7%9B%D7%97%D7%95%D7%9C-%D7%9C%D7%91%D7%9F/)
-* [מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
-* [אנשים ללא מנהיגות](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
-* [כחול לבן יקימו ממשלה עם המשותפת, תומכי מחבלים](https://twitter.com/adhalperin/status/1224393709795598344?s=20)
-* [כחול לבן אמרו שהם נגד שחיתות, אבל אישרו חסינות לחיים כץ, שבאמת מושחת](https://twitter.com/ronitlev12/status/1224772707310501888)
-* [כשלים של גנץ ובוגי בצוק איתן](https://twitter.com/BatelB/status/1225082871720947712?s=20)
-
-## האם בני גנץ מתאים לתפקיד ראשות ממשלה?
-
-### תפקודו בצבא
+## תפקודו בצבא
 
 * [חיוני: תפקודו של גנץ. לשמוע עד הסוף](https://www.facebook.com/GaleyIsrael/videos/369660013721104/)
 * [גנץ סיכן חיילים. חזק מאוד](https://twitter.com/galidalal/status/1226366099052253185?s=20)
 * [שוב, גנץ סיכן חיילים](https://twitter.com/netanyahu/status/1226861937604071425?s=20)
 * [גנץ היה מנוף לתכנית הנסיגה ושיתף פעולה עם אובמה נגד הדרג המדיני](https://twitter.com/Vitaliko/status/1226113323634241536?s=20)
 * [גנץ תרם לקריסת צה"ל בלבנון. מנהיג חסר יכולת](https://www.maariv.co.il/journalists/opinions/Article-651104)
+* [שרון הבין שגנץ סירס את הצבא](https://twitter.com/theShimon1/status/1225945182539046912?s=20)
 
-### תפקודו בעסקים
+## תפקודו בעסקים
 
 * [המימד החמישי](https://twitter.com/MiriBarbi/status/1223937328382726145?s=20)
 * [פרשת המימד החמישי בכלל לא נחקרה. חזק](https://www.youtube.com/watch?v=qk2Nv9W6pLA&feature=youtu.be&fbclid=IwAR1b3ZNJ5qninJOgYDofMUbm6Q2VC8CMdXwJebmngB8FwObwQKgT9P_-2_s)
@@ -154,13 +144,13 @@
 * [לא היתה בו שום בשורה](https://twitter.com/mcl_bgn/status/1226060047719026688?s=20)
 * [מישהו היה נותן לבני גנץ לנהל לו את העסק?](https://www.0404.co.il/?p=530141&fbclid=IwAR0K4p4gv9veqg1yBstEYXCx9dy-EG3nbmosP_qlEcJHCcmuT6aYNtqH2HY)
 
-### אולמרט, יועצו של גנץ
+## אולמרט, יועצו של גנץ
 
 * [אולמרט מתפקד כיועץ של גנץ](https://twitter.com/ohana_israel/status/1226443747182940160?s=20)
 * [שולה זקן על אולמרט, שמייעץ לגנץ. חזק מאוד. מ22:30](https://twitter.com/mcl_bgn/status/1226422499124154369?s=20)
 * [לגנץ אין מה להגיד על זה שאולמרט מפגין עם אבו מאזן נגד תכנית המאה](https://www.facebook.com/noam.fathi/posts/10157239094938519)
 
-### יכולות של מנהיג?
+## יכולות של מנהיג?
 
 * לגנץ לכאורה יש חוסר יכולת מוחלט לדבר בפומבי, דבר שנחוץ מאוד לראש ממשלה.
 [למשל, הוא זקוק לשלשה טלפרומטרים](https://twitter.com/nachi_z9/status/1221154666085539840?s=20)
@@ -177,14 +167,24 @@
 * [בעיות בתקשור בסיסי](https://twitter.com/gaby111153/status/1226144542950412288?s=20)
 * [ושוב גמגום](https://twitter.com/BoazGolan/status/1226582619103645699?s=20)
 
-## האם כחול לבן היא מפלגה רצינית?
+# כחול לבן
 
 * [קטעים מנבואותיהם של אנשי כחל"ב](https://www.facebook.com/watch/?v=553520195237470)
 * [המצע הכלכלי של כחול לבן, לעומת השר אוחנה](https://www.facebook.com/photo.php?fbid=10157786445626768&set=a.411182811767&type=3&theater)
+* [שמאל בלבוש ימין](https://mida.org.il/2019/03/31/%D7%A2%D7%95%D7%A7%D7%A5-%D7%AA%D7%95%D7%A6%D7%A8%D7%AA-%D7%9B%D7%97%D7%95%D7%9C-%D7%9C%D7%91%D7%9F/)
+* [מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
+* [אנשים ללא מנהיגות](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
+* [כחול לבן יקימו ממשלה עם המשותפת, תומכי מחבלים](https://twitter.com/adhalperin/status/1224393709795598344?s=20)
+* [כחול לבן אמרו שהם נגד שחיתות, אבל אישרו חסינות לחיים כץ, שבאמת מושחת](https://twitter.com/ronitlev12/status/1224772707310501888)
+
+## יכולות צבאיות?
+
 * [חזק מאוד. כחול-לבן בקשו דיון על עוטף עזה, שר הבטחון עלה לדבר, ואז ברחו](https://twitter.com/Duduoppe/status/1226824847097028608)
+* [תפקוד לקוי מול עזה והמנהרות. חזק מאוד](https://twitter.com/ronisassover/status/1226860676280352769?s=20)
+* [חבורת כשלונות. גנץ סיכן חיילים. חזק מאוד](https://twitter.com/galidalal/status/1226366099052253185?s=20)
+* [כשלים של גנץ ויעלון בצוק איתן](https://twitter.com/BatelB/status/1225082871720947712?s=20)
 
-
-### יאיר לפיד
+## יאיר לפיד
 
 * [יאיר לפיד שיקר שהסבתא שלו מתה באושוויץ](https://www.srugim.co.il/239962-%D7%9E%D7%91%D7%99%D7%9A-%D7%94%D7%90%D7%9D-%D7%99%D7%90%D7%99%D7%A8-%D7%9C%D7%A4%D7%99%D7%93-%D7%A0%D7%AA%D7%A4%D7%A1-%D7%91%D7%A9%D7%A7%D7%A8-%D7%94%D7%A1%D7%98%D7%95%D7%A8%D7%99-%D7%A6%D7%A4?fbclid=IwAR37xcWqxJjrFOGDpH82OkLQQpPDj8TcDt-FBtB6G6OBWS7w7PtxxIiLE9M)
 * [בן דוד של יאיר לפיד אומר שאף אחד במשפחה לא מצביע לו. חזק](https://twitter.com/mm09957/status/1223771978940780545?s=20)
@@ -192,7 +192,7 @@
 * [יאיר לפיד על רון דרמר](https://twitter.com/shlomi_kakon/status/1222225859664384000)
 * [יאיר לפיד גרם לפיטורה של שרה בריטית אוהדת ישראל](https://twitter.com/itzikelrov/status/928346745091837952?s=20)
 
-### אשכנזי
+## אשכנזי
 
 * [אשכנזי ביצע עברות חמורות](https://twitter.com/netanelgla/status/1226599357765562369?s=20)
 
