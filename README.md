@@ -162,6 +162,7 @@
 * [גנץ צנוע? פייק](https://www.facebook.com/photo.php?fbid=2537619173032594&set=a.1016750991786094&type=3)
 * [בעיות בתקשור בסיסי](https://twitter.com/gaby111153/status/1226144542950412288?s=20)
 * [ושוב גמגום](https://twitter.com/BoazGolan/status/1226582619103645699?s=20)
+* [היושב בראש](https://twitter.com/RomanoHoring/status/1226954883905003525?s=20)
 
 # כחול לבן
 
