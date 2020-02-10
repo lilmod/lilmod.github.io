@@ -144,6 +144,7 @@
 
 ### תפקודו בעסקים
 
+* [המימד החמישי](https://twitter.com/MiriBarbi/status/1223937328382726145?s=20)
 * [פרשת המימד החמישי בכלל לא נחקרה. חזק](https://www.youtube.com/watch?v=qk2Nv9W6pLA&feature=youtu.be&fbclid=IwAR1b3ZNJ5qninJOgYDofMUbm6Q2VC8CMdXwJebmngB8FwObwQKgT9P_-2_s)
 * [הונאת המימד החמישי](https://twitter.com/Tsahihagag/status/1225047770513453056?s=20)
 * [לגנץ אין מושג אפילו מה קרה לחברה בסוף](https://twitter.com/nisimshery/status/1161600580999110656?s=20)
@@ -152,6 +153,7 @@
 * [מישהו היה נותן לבני גנץ לנהל לו את העסק?](https://www.0404.co.il/?p=530141&fbclid=IwAR0K4p4gv9veqg1yBstEYXCx9dy-EG3nbmosP_qlEcJHCcmuT6aYNtqH2HY)
 
 ### אולמרט, יועצו של גנץ
+
 * [אולמרט מתפקד כיועץ של גנץ](https://twitter.com/ohana_israel/status/1226443747182940160?s=20)
 * [שולה זקן על אולמרט, שמייעץ לגנץ. חזק מאוד. מ22:30](https://twitter.com/mcl_bgn/status/1226422499124154369?s=20)
 * [לגנץ אין מה להגיד על זה שאולמרט מפגין עם אבו מאזן נגד תכנית המאה](https://www.facebook.com/noam.fathi/posts/10157239094938519)
@@ -176,11 +178,21 @@
 ## האם כחול לבן היא מפלגה רצינית?
 
 * [קטעים מנבואותיהם של אנשי כחל"ב](https://www.facebook.com/watch/?v=553520195237470)
+* [המצע הכלכלי של כחול לבן, לעומת השר אוחנה](https://www.facebook.com/photo.php?fbid=10157786445626768&set=a.411182811767&type=3&theater)
+* [חזק מאוד. כחול-לבן בקשו דיון על עוטף עזה, שר הבטחון עלה לדבר, ואז ברחו](https://twitter.com/Duduoppe/status/1226824847097028608)
+
+
+### יאיר לפיד
+
 * [יאיר לפיד שיקר שהסבתא שלו מתה באושוויץ](https://www.srugim.co.il/239962-%D7%9E%D7%91%D7%99%D7%9A-%D7%94%D7%90%D7%9D-%D7%99%D7%90%D7%99%D7%A8-%D7%9C%D7%A4%D7%99%D7%93-%D7%A0%D7%AA%D7%A4%D7%A1-%D7%91%D7%A9%D7%A7%D7%A8-%D7%94%D7%A1%D7%98%D7%95%D7%A8%D7%99-%D7%A6%D7%A4?fbclid=IwAR37xcWqxJjrFOGDpH82OkLQQpPDj8TcDt-FBtB6G6OBWS7w7PtxxIiLE9M)
 * [בן דוד של יאיר לפיד אומר שאף אחד במשפחה לא מצביע לו. חזק](https://twitter.com/mm09957/status/1223771978940780545?s=20)
 * [בתגובה , יאיר לפיד שיקר שאין לו בני דודים בכלל](https://twitter.com/ramieshel/status/1224391335194583040?s=20)
-* [המצע הכלכלי של כחול לבן, לעומת השר אוחנה](https://www.facebook.com/photo.php?fbid=10157786445626768&set=a.411182811767&type=3&theater)
-* [אשכנזי ביצע עברות חומורות](https://twitter.com/netanelgla/status/1226599357765562369?s=20)
+* [יאיר לפיד על רון דרמר](https://twitter.com/shlomi_kakon/status/1222225859664384000)
+* [יאיר לפיד גרם לפיטורה של שרה בריטית אוהדת ישראל](https://twitter.com/itzikelrov/status/928346745091837952?s=20)
+
+### אשכנזי
+
+* [אשכנזי ביצע עברות חמורות](https://twitter.com/netanelgla/status/1226599357765562369?s=20)
 
 ## מהן העמדות של כחול לבן?
 
