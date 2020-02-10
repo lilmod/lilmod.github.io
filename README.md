@@ -140,6 +140,7 @@
 
 * [חיוני: תפקודו של גנץ. לשמוע עד הסוף](https://www.facebook.com/GaleyIsrael/videos/369660013721104/)
 * [גנץ סיכן חיילים. חזק מאוד](https://twitter.com/galidalal/status/1226366099052253185?s=20)
+* [שוב, גנץ סיכן חיילים](https://twitter.com/netanyahu/status/1226861937604071425?s=20)
 * [גנץ היה מנוף לתכנית הנסיגה ושיתף פעולה עם אובמה נגד הדרג המדיני](https://twitter.com/Vitaliko/status/1226113323634241536?s=20)
 * [גנץ תרם לקריסת צה"ל בלבנון. מנהיג חסר יכולת](https://www.maariv.co.il/journalists/opinions/Article-651104)
 
