@@ -157,6 +157,7 @@
 * [איך רואים מנהיגים אמריקאים את ביבי מול גנץ. חובה](https://twitter.com/MiriBarbi/status/1223620835153514496?s=20)
 * [חלק ב](https://twitter.com/MiriBarbi/status/1223621025105137664?s=20)
 * [אפס מנהיגות](https://twitter.com/EstreicherSarit/status/1224371433473814532?s=20)
+* [מעריב: אפס מנהיגות](https://www.maariv.co.il/journalists/Article-684181)
 * [לא מעכל מידע טוב](https://twitter.com/ramieshel/status/1225135988890050566?s=20)
 * [גנץ תקף את ביבי: אם הייתי שם, לא הייתי זז... אבל](https://twitter.com/mcl_bgn/status/1223739920268787712?s=20)
 * [קיר ואבנים](https://twitter.com/YanivTurgi/status/1211599161075875840)
