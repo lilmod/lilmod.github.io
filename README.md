@@ -126,6 +126,7 @@
 # כחול לבן ובני גנץ
 
 * [חבורת כשלונות. גנץ סיכן חיילים. חזק מאוד](https://twitter.com/galidalal/status/1226366099052253185?s=20)
+* [שרון הבין שגנץ סירס את הצבא](https://twitter.com/theShimon1/status/1225945182539046912?s=20)
 * [שמאל בלבוש ימין](https://mida.org.il/2019/03/31/%D7%A2%D7%95%D7%A7%D7%A5-%D7%AA%D7%95%D7%A6%D7%A8%D7%AA-%D7%9B%D7%97%D7%95%D7%9C-%D7%9C%D7%91%D7%9F/)
 * [מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
 * [אנשים ללא מנהיגות](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
