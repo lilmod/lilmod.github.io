@@ -250,6 +250,7 @@
 זה במיוחד נכון כאשר מדובר בגוף בעל כח עצום, במיוחד מול פוליטיקאים:
 אין צורך בהרשעה כשכתב אישום ולפעמים אפילו הדלפות מספיקות להפיל פוליטיקאי,
 אשר תלוי בתמיכת הבוחרים.
+* [אני מאשימה. השופטת גרסטל. חזק מאוד](https://www.mako.co.il/tv-ilana_dayan/2017/Article-91bc5bf9a5cc951006.htm)
 * [הפרקליטות יכולים לחסל אדם. חזק](https://www.facebook.com/shuki.mishol/videos/10221105933782359/)
 * [הפרקליטות שילוב של עוצמה וחוסר בקרה](https://www.maariv.co.il/journalists/Article-732356?fbclid=IwAR1_2r1KcOBL_sOyDvm5R0bQ7sCXq5v1-LPI6SkUNoQjl6L_pyzZWjqO8-A)
 * [הנציב: הפרקליטות משקרת ומסתירה ראיות](https://www.globes.co.il/news/article.aspx?did=1001279192)
