@@ -191,6 +191,12 @@
 * [בתגובה , יאיר לפיד שיקר שאין לו בני דודים בכלל](https://twitter.com/ramieshel/status/1224391335194583040?s=20)
 * [יאיר לפיד על רון דרמר](https://twitter.com/shlomi_kakon/status/1222225859664384000)
 * [יאיר לפיד גרם לפיטורה של שרה בריטית אוהדת ישראל](https://twitter.com/itzikelrov/status/928346745091837952?s=20)
+* [לפיד נעדר סדרתי בכנסת](https://twitter.com/michelletelaviv/status/1226914786358833157?s=20)
+
+## יעלון
+
+* [כשלים של גנץ ויעלון בצוק איתן](https://twitter.com/BatelB/status/1225082871720947712?s=20)
+* [עופר שלח: גנץ ויעלון אחראים לכישלון המנהרות](https://twitter.com/MiriBarbi/status/1226866783375806469?s=20)
 
 ## אשכנזי
 
