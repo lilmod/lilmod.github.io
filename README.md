@@ -177,6 +177,7 @@
 * [היושב בראש](https://twitter.com/RomanoHoring/status/1226954883905003525?s=20)
 * [כשבני מנסה להראות חברמן](https://twitter.com/OraKesselman/status/1226788350952116224?s=20)
 * [אין מה לעשות, הוא פשוט מצחיק](https://twitter.com/iki_cohen/status/1227333713295486976?s=20)
+* [גנציזם](https://twitter.com/BeGooDoGood/status/1227352112763482112?s=20)
 
 # כחול לבן
 
