@@ -267,6 +267,7 @@
 * [מינויים לא לגיטימיים התבצעו בפרקליטות](https://www.facebook.com/permalink.php?story_fbid=2240866776213184&id=100008696496760)
 * [הצד האפל של מערכת המשפט](https://www.facebook.com/danny.hendler/posts/10157923390242888)
 * [פרקליטים בכירים החליטו לא לתת לאלדד להתערב בענינייהם](https://twitter.com/ManaOfir/status/1226595799699787776?s=20)
+* [פרקליטי מדינה לשעבר מלכלכים על דן אלדד](https://twitter.com/DannyHendler/status/1227136407858274305?s=20)
 * [מדליפי הפרקליטות](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
 * [הפרקליטות וחיים רמון](https://www.facebook.com/bar.shlush.1/posts/3451261461580586)
 
