@@ -217,6 +217,7 @@
 * [סגן ראש השב"כ לשעבר: סולקתי כמחווה למשותפת](https://twitter.com/DannyHendler/status/1226836599515893760?s=20)
 * [אימן עודה: גנץ חייב להתחייב לא לספח](https://twitter.com/newsisrael13/status/1227178688690651136?s=20)
 * [שלח ופרץ כבר מזמן סגרו דיל עם המאוחדת](https://twitter.com/MiriBarbi/status/1227301355234242561?s=20)
+* [היה הסכם עם המאוחדת, ליברמן חזר בו](https://twitter.com/DarashLimor/status/1214423090643513345?s=20)
 * [בני גנץ רוצה לממש את מדיניות השמאל הקיצוני](https://twitter.com/GuyCamelmacher/status/1220095015134879753)
 * [ראיון עם עופר שלח](https://www.facebook.com/erez.tadmor.9/videos/10156651415852109/)
 * [ריבונות או התנתקות? חזק](https://twitter.com/igal_malka/status/1224792376356589569?s=20)
