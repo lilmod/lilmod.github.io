@@ -164,6 +164,7 @@
 * [בעיות בתקשור בסיסי](https://twitter.com/gaby111153/status/1226144542950412288?s=20)
 * [ושוב גמגום](https://twitter.com/BoazGolan/status/1226582619103645699?s=20)
 * [היושב בראש](https://twitter.com/RomanoHoring/status/1226954883905003525?s=20)
+* [כשבני מנסה להראות חברמן](https://twitter.com/OraKesselman/status/1226788350952116224?s=20)
 
 # כחול לבן
 
