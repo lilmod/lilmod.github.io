@@ -79,6 +79,10 @@
 * [חזק מאוד](https://twitter.com/nisimshery/status/1161600580999110656?s=20)
 * למזלנו, הנשיא הבא, טראמפ, הינו הנשיא הכי פרו-ישראלי שהיה אי פעם.
 
+### הישג: ביטחון
+
+* [עשור עם הכי פחות הרוגי טרור](https://twitter.com/LiberalRiWo/status/1226772926558560256?s=20)
+
 # התיקים
 
 * [תובע פדרלי מנתח את התיקים נגד ביבי. חזק מאוד](https://www.0404.co.il/?p=517590)
@@ -128,6 +132,7 @@
 * [גנץ היה מנוף לתכנית הנסיגה ושיתף פעולה עם אובמה נגד הדרג המדיני](https://twitter.com/Vitaliko/status/1226113323634241536?s=20)
 * [גנץ תרם לקריסת צה"ל בלבנון. מנהיג חסר יכולת](https://www.maariv.co.il/journalists/opinions/Article-651104)
 * [שרון הבין שגנץ סירס את הצבא](https://twitter.com/theShimon1/status/1225945182539046912?s=20)
+* [הקריב 16 חיילים](https://twitter.com/igal_malka/status/1226928405662314496?s=20)
 
 ## תפקודו בעסקים
 
@@ -209,6 +214,7 @@
 * [שלל עמדות. חזק](https://www.facebook.com/yossidavidovd/videos/2920900504638007/)
 * [כחול לבן בעצם חייבית לציית לאחמד טיבי, יועצו של ערפאת](https://twitter.com/netanyahu/status/1216723202682105857)
 * [אחמד טיבי, למשל](https://twitter.com/Michael50616567/status/1226498560142823437?s=20)
+* [סגן ראש השב"כ לשעבר: סולקתי כמחווה למשותפת](https://twitter.com/DannyHendler/status/1226836599515893760?s=20)
 * [אימן עודה: גנץ חייב להתחייב לא לספח](https://twitter.com/newsisrael13/status/1227178688690651136?s=20)
 * [בני גנץ רוצה לממש את מדיניות השמאל הקיצוני](https://twitter.com/GuyCamelmacher/status/1220095015134879753)
 * [ראיון עם עופר שלח](https://www.facebook.com/erez.tadmor.9/videos/10156651415852109/)
@@ -287,7 +293,7 @@
 * [שלטון פקידים עדיף?](https://www.facebook.com/adi.benhur.35/posts/533133647526921)
 * [מכתב מחרדי לאהרון ברק. חזק](https://www.facebook.com/simcha.rothman/posts/10157705995869709)
 
-## בעיות המשילות
+## בעית המשילות
 
 * שלא כמו הפרקליטות (עליה אין מנגנון ביקורת בכלל), בעיית
 מערכת המשפט היא שמינוי שופט נעשה בסתר וע"י ועדה שמורכבת בעיקר משופטים.
@@ -305,7 +311,8 @@
 * [בג"ץ מבטל את פסילת יזבק להתמודדות בבחירות](https://twitter.com/0404news/status/1226564780946841600?s=20)
 * [יזבק תומכת טרור מוצהרת](https://twitter.com/ayeletmm/status/1227234441434738688?s=20)
 * [בג"ץ קבע כי שר הפנים לא יכול לפעול לפי החוק](https://twitter.com/KoheletForum/status/1227098891541270528?s=20)
-
+* [קביעת הרכבים זו בעצם דרך להנדס החלטות](https://twitter.com/talia_einhorn/status/1226835342361350144?s=20)
+* [בג"ץ מתעלם מחוקי יסוד. הגיע הזמן לשנות מינוי שופטים](https://mida.org.il/2020/02/10/%d7%91%d7%92%d7%a5-%d7%a9%d7%95%d7%91-%d7%9e%d7%aa%d7%a2%d7%9c%d7%9d-%d7%9e%d7%97%d7%95%d7%a7%d7%99-%d7%99%d7%a1%d7%95%d7%93-%d7%94%d7%92%d7%99%d7%a2-%d7%94%d7%96%d7%9e%d7%9f-%d7%9c%d7%a9%d7%99/)
 
 # ליברמן
 
@@ -324,6 +331,7 @@
 
 ## מערכת הבריאות
 
+* [עובדות: בתי חולים חדשים ועוד](https://twitter.com/TalOr314/status/1226575606537650178?s=20)
 * [מערכת הבריאות במצב מצוין](https://www.maariv.co.il/amp/journalists/Article-687269?__twitter_impression=true)
 * [נתוני בריאות. חזק](https://twitter.com/LiberalRiWo/status/1226403013054619649?s=20)
 * [דרוגי בריאות](https://twitter.com/mcl_bgn/status/1226455192851427328?s=20)
