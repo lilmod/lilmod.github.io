@@ -225,6 +225,7 @@
 * [אחמד טיבי, למשל](https://twitter.com/Michael50616567/status/1226498560142823437?s=20)
 * [סגן ראש השב"כ לשעבר: סולקתי כמחווה למשותפת](https://twitter.com/DannyHendler/status/1226836599515893760?s=20)
 * [אימן עודה: גנץ חייב להתחייב לא לספח](https://twitter.com/newsisrael13/status/1227178688690651136?s=20)
+* [סגור - ליברמן ישב עם גנץ בתמיכת המשותפת](https://twitter.com/talia_einhorn/status/1227366485099716609?s=20)
 * [שלח ופרץ כבר מזמן סגרו דיל עם המאוחדת](https://twitter.com/MiriBarbi/status/1227301355234242561?s=20)
 * [היה הסכם עם המאוחדת, ליברמן חזר בו](https://twitter.com/DarashLimor/status/1214423090643513345?s=20)
 * [בני גנץ רוצה לממש את מדיניות השמאל הקיצוני](https://twitter.com/GuyCamelmacher/status/1220095015134879753)
@@ -330,6 +331,7 @@
 
 # ליברמן
 
+* [סגור - ליברמן ישב עם גנץ בתמיכת המשותפת](https://twitter.com/talia_einhorn/status/1227366485099716609?s=20)
 * [ליברמן מדבר על גיוס חרדים, אך לשכתו סחרה פטורים לחרדים מקושרים](https://twitter.com/AronRabino1/status/1224196700144918529)
 * [ההונאה הגדולה של ליברמן](https://www.facebook.com/photo.php?fbid=10158148963283912&set=a.10150182766703912&type=3&theater)
 
