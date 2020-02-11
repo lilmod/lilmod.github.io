@@ -341,6 +341,7 @@
 * [המצב מצוין לפי יעל גרמן מכחל"ב](https://twitter.com/ayeletsl/status/1226523224399319041?s=20)
 * [בדיקת תקציבי הבריאות והרווחה](https://www.globes.co.il/news/article.aspx?did=1001277985)
 * [מנכ"ל איחילוב על מערכת הבריאות](https://twitter.com/LiberalRiWo/status/1227085977056948224?s=20)
+* [מערכת הבריאות מתפרקת?](https://www.globes.co.il/news/article.aspx?did=1001317969)
 
 # שחיתות פוליטית
 
