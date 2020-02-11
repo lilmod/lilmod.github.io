@@ -164,6 +164,7 @@
 * [קיר ואבנים](https://twitter.com/YanivTurgi/status/1211599161075875840)
 * [פעם אחר פעם, גנץ מפגין חוסר יכולת לדבר עניינית](https://twitter.com/adforbb/status/1224761269258944513?s=20)
 * [בני באג. חזק](https://m.news1.co.il/ArticlePage.aspx?docid=138403&subjectid=26)
+* [למה עד עכשיו לא ראינו קליפ של גנץ מדבר עם טראמפ?](https://twitter.com/yossidavidov10/status/1227316145742647297?s=20)
 * [מה שביבי עושה ביממה גנץ לא מסוגל בכלל לעשות](https://twitter.com/c_shlomit/status/1226271731901489152?s=20)
 * [גנץ צנוע? פייק](https://www.facebook.com/photo.php?fbid=2537619173032594&set=a.1016750991786094&type=3)
 * [בעיות בתקשור בסיסי](https://twitter.com/gaby111153/status/1226144542950412288?s=20)
