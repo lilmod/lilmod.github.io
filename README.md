@@ -207,6 +207,7 @@
 * [שלל עמדות. חזק](https://www.facebook.com/yossidavidovd/videos/2920900504638007/)
 * [כחול לבן בעצם חייבית לציית לאחמד טיבי, יועצו של ערפאת](https://twitter.com/netanyahu/status/1216723202682105857)
 * [אחמד טיבי, למשל](https://twitter.com/Michael50616567/status/1226498560142823437?s=20)
+* [אימן עודה: גנץ חייב להתחייב לא לספח](https://twitter.com/newsisrael13/status/1227178688690651136?s=20)
 * [בני גנץ רוצה לממש את מדיניות השמאל הקיצוני](https://twitter.com/GuyCamelmacher/status/1220095015134879753)
 * [ראיון עם עופר שלח](https://www.facebook.com/erez.tadmor.9/videos/10156651415852109/)
 * [ריבונות או התנתקות? חזק](https://twitter.com/igal_malka/status/1224792376356589569?s=20)
