@@ -178,6 +178,7 @@
 * [שמאל בלבוש ימין](https://mida.org.il/2019/03/31/%D7%A2%D7%95%D7%A7%D7%A5-%D7%AA%D7%95%D7%A6%D7%A8%D7%AA-%D7%9B%D7%97%D7%95%D7%9C-%D7%9C%D7%91%D7%9F/)
 * [מיזם המרמה הגדול ביותר](https://www.maariv.co.il/journalists/Article-721410)
 * [אנשים ללא מנהיגות](https://twitter.com/LiberalRiWo/status/1224296862657712129?s=20)
+* [מפלגת פייק. מצחיק](https://twitter.com/DarashLimor/status/1214423090643513345?s=20)
 * [כחול לבן יקימו ממשלה עם המשותפת, תומכי מחבלים](https://twitter.com/adhalperin/status/1224393709795598344?s=20)
 * [בלי המשותפת אין לכחול לבן ממשלה](https://twitter.com/Likud_Party/status/1226736852218056705?s=20)
 * [כחול לבן אמרו שהם נגד שחיתות, אבל אישרו חסינות לחיים כץ, שבאמת מושחת](https://twitter.com/ronitlev12/status/1224772707310501888)
