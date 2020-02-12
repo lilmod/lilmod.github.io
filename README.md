@@ -15,6 +15,7 @@
 * [פסל שעווה של ביבי הוקם ליד טראמפ ופוטין, ראשי מעצמות העולם](https://twitter.com/mohsaud08/status/1221805017172271104?s=20)
 * [זלמן שובל: אם ביבי יעזוב, זה יהיה נזק לישראל](https://www.facebook.com/permalink.php?story_fbid=2264143550552173&id=100008696496760)
 * [מדינאי ענק](https://twitter.com/ayeletsl/status/1224419208563449857?s=20)
+* [ביבי מתאר את היכולת שלו מול האמריקאים](https://youtu.be/oGVeJwyAeec?t=1494)
 * [האסטרטגיה של ביבי](https://www.israelhayom.co.il/opinion/729247)
 * [ראיון מקיף עם ביבי](https://www.facebook.com/watch/?ref=saved&v=487870205459997)
 * [ביבי על דברים שהיו קשים להשגה](https://twitter.com/c_shlomit/status/1224799923364880386?s=20)
