@@ -360,6 +360,7 @@
 * [בדיקת תקציבי הבריאות והרווחה](https://www.globes.co.il/news/article.aspx?did=1001277985)
 * [מנכ"ל איחילוב על מערכת הבריאות](https://twitter.com/LiberalRiWo/status/1227085977056948224?s=20)
 * [מערכת הבריאות מתפרקת?](https://www.globes.co.il/news/article.aspx?did=1001317969)
+* [ביבי על ההישגים במערכת הבריאות](https://youtu.be/oGVeJwyAeec?t=1218)
 
 # שחיתות פוליטית
 
