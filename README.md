@@ -6,14 +6,14 @@
 
 ## נושאים
 
-* [הישגיו של נתניהו](contents/achievements.md)
-* [התיקים וכתב האישום](contents/cases.md)
-* [בני גנץ](contents/gantz.md)
-* [כחול לבן](contents/blue_white.md)
-* [הפרקליטות ומערכת המשפט](contents/justice.md)
-* [מערכת הבריאות](contents/health.md)
-* [ליברמן](contents/liberman.md)
-* [נושאים אחרים](contents/other.md)
+* [הישגיו של נתניהו](content/achievements.md)
+* [התיקים וכתב האישום](content/cases.md)
+* [בני גנץ](content/gantz.md)
+* [כחול לבן](content/blue_white.md)
+* [הפרקליטות ומערכת המשפט](content/justice.md)
+* [מערכת הבריאות](content/health.md)
+* [ליברמן](content/liberman.md)
+* [נושאים אחרים](content/other.md)
 
 # בנימין נתניהו
 
