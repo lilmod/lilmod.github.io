@@ -26,6 +26,7 @@
 * [ראיון מעולה עם אחיו של ביבי](https://www.israelhayom.co.il/article/721005?fbclid=IwAR1RnOgNo2kTV-RB6Ld5yThj0febm6Vb3lJF-6yjULFwxniel_2b7g6j2lQ)
 * [ראיון חזק של ביבי עם בועז גולן](https://www.youtube.com/watch?v=oGVeJwyAeec)
 * [מה שביבי אומר ההישג הכי גדול שלו](https://youtu.be/oGVeJwyAeec?t=1362)
+* [איך ביבי מנע אסון גדול על ישראל בעזרת יחסיו עם פוטין](https://youtu.be/oGVeJwyAeec?t=1897)
 
 
 ## הישג: שיפור יחסים עם העולם הערבי
