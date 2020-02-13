@@ -39,6 +39,7 @@
 * [יאיר לפיד על רון דרמר](https://twitter.com/shlomi_kakon/status/1222225859664384000)
 * [יאיר לפיד גרם לפיטורה של שרה בריטית אוהדת ישראל](https://twitter.com/itzikelrov/status/928346745091837952?s=20)
 * [לפיד נעדר סדרתי בכנסת](https://twitter.com/michelletelaviv/status/1226914786358833157?s=20)
+* [לפיד איש רציני](https://www.facebook.com/groups/173336523277857/permalink/539735406637965/)
 
 ## יעלון
 
