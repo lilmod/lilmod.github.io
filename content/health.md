@@ -13,5 +13,7 @@
 * [מנכ"ל איחילוב על מערכת הבריאות](https://twitter.com/LiberalRiWo/status/1227085977056948224?s=20)
 * [מערכת הבריאות מתפרקת?](https://www.globes.co.il/news/article.aspx?did=1001317969)
 * [ביבי על ההישגים במערכת הבריאות](https://youtu.be/oGVeJwyAeec?t=1218)
+* [5000 מתים מזהומים?](https://twitter.com/ZivKnobler/status/1227912127610007552?s=20)
+
 
 </div>
