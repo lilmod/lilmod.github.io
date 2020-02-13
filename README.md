@@ -7,8 +7,10 @@
 ## נושאים
 
 * [בנימין נתניהו](content/bibi.md)
-* [הישגיו של נתניהו](content/achievements.md)
 * [כלכלת ישראל ומתווה הגז](content/economy.md)
+* [תכנית המאה וריבונות](content/deal_100.md)
+* [ביטחון, איראן, אובמה](content/security.md)
+* [יחסים עם העולם הערבי](content/arab_world.md)
 * [התיקים וכתב האישום](content/cases.md)
 * [בני גנץ](content/gantz.md)
 * [כחול לבן](content/blue_white.md)
