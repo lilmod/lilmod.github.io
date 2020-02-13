@@ -1,6 +1,6 @@
 <div dir="rtl" markdown="1">
 
-# עסקת המאה
+# תכנית המאה
 
 * [מאמר מעולה ](https://www.facebook.com/galit.distalatbaryan/posts/2523752181085960)
 * [על העסקה](https://www.facebook.com/erez.tadmor.9/posts/10156773614312109)
