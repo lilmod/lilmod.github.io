@@ -17,6 +17,7 @@
 * [הפרקליטות ומערכת המשפט](content/justice.md)
 * [מערכת הבריאות](content/health.md)
 * [ליברמן](content/liberman.md)
+* [התקשורת](content/the_media.md)
 * [נושאים אחרים](content/other.md)
 
 </div>
