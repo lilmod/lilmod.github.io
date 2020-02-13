@@ -32,6 +32,7 @@
 * [סיקור אוהד למנדלבליט](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
 * [התקשורת בארץ היא ברובה ארגון תעמולה לשמאל. דוגמא](https://twitter.com/hananamiur/status/1226209922800594944?s=20)
 * [תקשורת אוביקטיבית](https://twitter.com/GolanOfer/status/1228026248930177024?s=20)
+* [פרחים לאבי גבאי](https://twitter.com/Onetruth011/status/1228032101246697473?s=20)
 
 # פרשת הצוללות
 
