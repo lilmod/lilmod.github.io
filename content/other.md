@@ -39,6 +39,7 @@
 * [תעמולה נגד תכנית המאה בערוץ כאן](https://twitter.com/keslasy/status/1228039715435302914?s=20)
 * [תאגיד כאן הוא חרפה](https://twitter.com/keslasy/status/1228045583312719877?s=20)
 * [על זה אראל סג"ל הושעה מהתאגיד](https://twitter.com/YanivTurgi/status/1228044230536372224?s=20)
+* [לעומת זאת יגאל גואטה לא הושעה](https://twitter.com/xKAR6Ew971p8rDs/status/1228042025112608768)
 
 # פרשת הצוללות
 
