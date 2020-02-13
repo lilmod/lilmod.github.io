@@ -21,5 +21,6 @@
 * [ראיון חזק של ביבי עם בועז גולן](https://www.youtube.com/watch?v=oGVeJwyAeec)
 * [מה שביבי אומר ההישג הכי גדול שלו](https://youtu.be/oGVeJwyAeec?t=1362)
 * [איך ביבי מנע אסון גדול על ישראל בעזרת יחסיו עם פוטין](https://youtu.be/oGVeJwyAeec?t=1897)
+* [מעולה. התקפות על ביבי](https://www.facebook.com/groups/173336523277857/permalink/540588053219367/)
 
 </div>
