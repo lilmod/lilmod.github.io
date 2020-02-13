@@ -37,6 +37,7 @@
 * [תקשורת אוביקטיבית](https://twitter.com/GolanOfer/status/1228026248930177024?s=20)
 * [פרחים לאבי גבאי](https://twitter.com/Onetruth011/status/1228032101246697473?s=20)
 * [תעמולה נגד תכנית המאה בערוץ כאן](https://twitter.com/keslasy/status/1228039715435302914?s=20)
+* [תאגיד כאן הוא חרפה](https://twitter.com/keslasy/status/1228045583312719877?s=20)
 
 # פרשת הצוללות
 
