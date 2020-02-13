@@ -8,6 +8,7 @@
 
 * [בנימין נתניהו](content/bibi.md)
 * [הישגיו של נתניהו](content/achievements.md)
+* [כלכלת ישראל ומתווה הגז](content/economy.md)
 * [התיקים וכתב האישום](content/cases.md)
 * [בני גנץ](content/gantz.md)
 * [כחול לבן](content/blue_white.md)
