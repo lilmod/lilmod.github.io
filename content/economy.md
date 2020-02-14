@@ -8,6 +8,7 @@
 * [אבטלה של 3.4%](https://www.globes.co.il/news/article.aspx?did=1001316761)
 * [המצב בתקשורת לעומת המציאות](https://www.facebook.com/watch/?v=2312068642231275)
 * [יועצת לענייני עסקים קטנים](https://www.facebook.com/Netanyahu/videos/578755389397115/)
+* [השוואת נתונים בעשור האחרון](https://twitter.com/ZafrirRon/status/1228310457527734272?s=20)
 
 # מתווה הגז
 
