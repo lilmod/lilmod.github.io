@@ -2,6 +2,7 @@
 
 # כחול לבן
 
+* [חזק מאוד](https://www.youtube.com/watch?v=1QmUCtF9hAU))
 * [קטעים מנבואותיהם של אנשי כחל"ב](https://www.facebook.com/watch/?v=553520195237470)
 * [המצע הכלכלי של כחול לבן, לעומת השר אוחנה](https://www.facebook.com/photo.php?fbid=10157786445626768&set=a.411182811767&type=3&theater)
 * [שמאל בלבוש ימין](https://mida.org.il/2019/03/31/%D7%A2%D7%95%D7%A7%D7%A5-%D7%AA%D7%95%D7%A6%D7%A8%D7%AA-%D7%9B%D7%97%D7%95%D7%9C-%D7%9C%D7%91%D7%9F/)
