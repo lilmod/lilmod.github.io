@@ -2,7 +2,7 @@
 
 # בני גנץ
 
-* [חזק מאוד](https://www.facebook.com/100001552242035/posts/2887140241347689/?sfnsn=mo&d=n&vh=i)
+* [חזק מאוד](https://www.youtube.com/watch?v=1QmUCtF9hAU)
 
 ## תפקודו בצבא
 
