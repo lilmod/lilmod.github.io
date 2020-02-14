@@ -2,6 +2,8 @@
 
 # בני גנץ
 
+* [חזק מאוד](https://www.facebook.com/100001552242035/posts/2887140241347689/?sfnsn=mo&d=n&vh=i)
+
 ## תפקודו בצבא
 
 * [חיוני: תפקודו של גנץ. לשמוע עד הסוף](https://www.facebook.com/GaleyIsrael/videos/369660013721104/)
