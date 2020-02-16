@@ -2,7 +2,7 @@
 
 # מערכת הבריאות
 
-* [נתונים שלא שמעתם. חזק](https://youtu.be/q448Ia9PnG0))
+* [נתונים שלא שמעתם. חזק](https://youtu.be/q448Ia9PnG0)
 * [עובדות: בתי חולים חדשים ועוד](https://twitter.com/TalOr314/status/1226575606537650178?s=20)
 * [מערכת הבריאות במצב מצוין](https://www.maariv.co.il/amp/journalists/Article-687269?__twitter_impression=true)
 * [נתוני בריאות. חזק](https://twitter.com/LiberalRiWo/status/1226403013054619649?s=20)
