@@ -21,6 +21,7 @@
 * [ראיון חזק של ביבי עם בועז גולן](https://www.youtube.com/watch?v=oGVeJwyAeec)
 * [מה שביבי אומר ההישג הכי גדול שלו](https://youtu.be/oGVeJwyAeec?t=1362)
 * [איך ביבי מנע אסון גדול על ישראל בעזרת יחסיו עם פוטין](https://youtu.be/oGVeJwyAeec?t=1897)
+* [מה יש להם?](https://youtu.be/DGaEOUj5F3U)
 * [ביבי על דברים שהיו קשים להשגה](https://twitter.com/c_shlomit/status/1224799923364880386?s=20)
 * [ביבי בגיל 28 - תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
 
