@@ -24,6 +24,7 @@
 * [המשטרה ידעה שאין לקוחות, ונתנה למימד החמישי בלי מכרז](https://www.facebook.com/permalink.php?story_fbid=2274370502862811&id=100008696496760)
 * [לא היתה בו שום בשורה](https://twitter.com/mcl_bgn/status/1226060047719026688?s=20)
 * [מישהו היה נותן לבני גנץ לנהל לו את העסק?](https://www.0404.co.il/?p=530141&fbclid=IwAR0K4p4gv9veqg1yBstEYXCx9dy-EG3nbmosP_qlEcJHCcmuT6aYNtqH2HY)
+* [המימד החמישי קבלה פטור ממכרז וחברה אחרת לא קבלה צ'אנס](https://twitter.com/moshesiani/status/1229166205870772225?s=20)
 
 ## אולמרט, יועצו של גנץ
 
