@@ -61,16 +61,10 @@
 * [להגיש כתבי אישום נגד שופטים סורחים](https://m.news1.co.il/ArticlePage.aspx?docid=96460&subjectid=3)
 * [סרטון על מינוי שופטים](https://twitter.com/Meshilut/status/1226598593592688642?s=20)
 
+
+
+
 ## האם לרשות השופטת יש כח מופרז?
-
-* [הסטורית ההפיכה המשפטית בישראל](https://www.facebook.com/bookfaceaddress/posts/10221337580932020)
-* [גדי טאוב מדבר על בעיית הרשויות בישראל](https://www.facebook.com/watch/?v=500227153943077)
-* [פרופ' אומן: הפרקליטות משתלטת על המדינה](https://www.israelhayom.co.il/article/712971?fbclid=IwAR3160t8J96WXXAEmZTsz-KLXNvFSO_8uwoMeB-j3bFqKVXeQaMKjgQ7s2s)
-* [בית המשפט מגן על המיעוט?](https://www.facebook.com/bookfaceaddress/posts/10221285775596919)
-* [שלטון פקידים עדיף?](https://www.facebook.com/adi.benhur.35/posts/533133647526921)
-* [מכתב מחרדי לאהרון ברק. חזק](https://www.facebook.com/simcha.rothman/posts/10157705995869709)
-
-## בעית המשילות
 
 * שלא כמו הפרקליטות (עליה אין מנגנון ביקורת בכלל), בעיית
 מערכת המשפט היא שמינוי שופט נעשה בסתר וע"י ועדה שמורכבת בעיקר משופטים.
@@ -84,9 +78,16 @@
 כך, בג"ץ עושה מה שהוא רוצה עם החוק, ועוקף לגמרי את הרשות המחוקקת.
 * [ריסוק גישתו השיפוטית של אהרן ברק. חזק מאוד](https://www.zavitaheret.com/%D7%A8%D7%95%D7%93%D7%9F-%D7%A0%D7%90%D7%95%D7%A8-%D7%A8%D7%99%D7%A1%D7%95%D7%A7-%D7%92%D7%99%D7%A9%D7%AA%D7%95-%D7%94%D7%A9%D7%99%D7%A4%D7%95%D7%98%D7%99%D7%AA-%D7%A9%D7%9C-%D7%90%D7%94%D7%A8)
 * [ישראל היא בין המדינות הדמוקרטיות היחידות בעולם בהן שופטים ממנים את עצמם](http://meshilut.org/2019/01/17/%D7%9E%D7%97%D7%A7%D7%A8-%D7%94%D7%AA%D7%A0%D7%95%D7%A2%D7%94-%D7%A9%D7%A1%D7%A7%D7%A8-42-%D7%9E%D7%93%D7%99%D7%A0%D7%95%D7%AA-%D7%99%D7%A9%D7%A8%D7%90%D7%9C-%D7%97%D7%A8%D7%99%D7%92%D7%94-%D7%91/)
-* [בג"ץ קובע כי מילה נשית היא עילה לפליטות, מה שהופך את כל נשות מצרים לפליטים](https://twitter.com/yonimdm/status/1226515337690124289?s=20)
+* [איך בג"ץ הפך למושל](https://twitter.com/GadiTaub1/status/1229427474792054784?s=20)
 * [ביקורת על המשפט הפלילי ע"י בועז סנג'רו. מומלץ](http://sangero.co.il/%d7%90%d7%99%d7%a0%d7%93%d7%a7%d7%a1-%d7%a0%d7%95%d7%a9%d7%90%d7%99%d7%9d-%d7%91%d7%9e%d7%a9%d7%a4%d7%98-%d7%a4%d7%9c%d7%99%d7%9c%d7%99/)
+* [הסטורית ההפיכה המשפטית בישראל](https://www.facebook.com/bookfaceaddress/posts/10221337580932020)
+* [גדי טאוב מדבר על בעיית הרשויות בישראל](https://www.facebook.com/watch/?v=500227153943077)
+* [פרופ' אומן: הפרקליטות משתלטת על המדינה](https://www.israelhayom.co.il/article/712971?fbclid=IwAR3160t8J96WXXAEmZTsz-KLXNvFSO_8uwoMeB-j3bFqKVXeQaMKjgQ7s2s)
+* [בית המשפט מגן על המיעוט?](https://www.facebook.com/bookfaceaddress/posts/10221285775596919)
+* [שלטון פקידים עדיף?](https://www.facebook.com/adi.benhur.35/posts/533133647526921)
+* [מכתב מחרדי לאהרון ברק. חזק](https://www.facebook.com/simcha.rothman/posts/10157705995869709)
 * [בג"ץ נתן לכל פליט ממדינה בה יש מילה נשית את הזכות להגיע](https://twitter.com/GadiTaub1/status/1227111888334524416?s=20)
+* [בג"ץ קובע כי מילה נשית היא עילה לפליטות, מה שהופך את כל נשות מצרים לפליטים](https://twitter.com/yonimdm/status/1226515337690124289?s=20)
 * [בג"ץ מנע ממנהל מקרקעי ישראל להפשיר קרקעות, ובכך גרם למחסור בדירות](https://www.youtube.com/watch?v=Z8GPkDvN5Vg)
 * [בג"ץ מבטל את פסילת יזבק להתמודדות בבחירות](https://twitter.com/0404news/status/1226564780946841600?s=20)
 * [יזבק תומכת טרור מוצהרת](https://twitter.com/ayeletmm/status/1227234441434738688?s=20)
