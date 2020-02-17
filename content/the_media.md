@@ -10,6 +10,7 @@
 
 ## אוביקטיביות
 
+* [רוב העיתונאים הם שמאל ונגד ביבי](https://youtu.be/OLwIs_ZFH6c)
 * [התקשורת בארץ היא ברובה ארגון תעמולה לשמאל. דוגמא](https://twitter.com/hananamiur/status/1226209922800594944?s=20)
 * [תקשורת אוביקטיבית](https://twitter.com/GolanOfer/status/1228026248930177024?s=20)
 * [פרחים לאבי גבאי](https://twitter.com/Onetruth011/status/1228032101246697473?s=20)
