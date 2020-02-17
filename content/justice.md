@@ -31,6 +31,7 @@
 * [שופטת: שי ניצן מפעיל אכיפה רק נגד הימין](https://www.makorrishon.co.il/nrg/online/1/ART2/621/116.html)
 * [פרקליט המדינה עושה נסיונות בבני אדם](https://www.xn--7dbl2a.com/2019/07/26/%D7%91%D7%95%D7%A2%D7%96-%D7%A1%D7%A0%D7%92%D7%A8%D7%95-%D7%A4%D7%A8%D7%A7%D7%9C%D7%99%D7%98-%D7%94%D7%9E%D7%93%D7%99%D7%A0%D7%94-%D7%A2%D7%95%D7%A9%D7%94-%D7%A0%D7%99/?fbclid=IwAR1c7yQT68qgK9U8s57lElAu8pkzAU_Uv2Lw1NwytCvSsGfRow3eEt8ts2Q#sthash.32SIu07e.D3bXD96f.dpbs)
 * [הראיון המלטף של שי ניצן](https://www.facebook.com/permalink.php?story_fbid=2227556317544230&id=100008696496760)
+* [הסטורית החיסולים הפוליטיים של פרקליטות המדינה](https://mida.org.il/2017/01/04/%D7%A9%D7%9C%D7%98%D7%95%D7%9F-%D7%94%D7%97%D7%95%D7%A7-%D7%94%D7%99%D7%A1%D7%98%D7%95%D7%A8%D7%99%D7%AA-%D7%94%D7%97%D7%99%D7%A1%D7%95%D7%9C%D7%99%D7%9D-%D7%94%D7%A4%D7%95%D7%9C%D7%99%D7%98%D7%99/)
 
 ## שחיתות בפרקליטות
 
@@ -45,6 +46,7 @@
 * [הנציב: הפרקליטות משקרת ומסתירה ראיות](https://www.globes.co.il/news/article.aspx?did=1001279192)
 * [חסרת מעצורים, מלאת אגו](https://www.globes.co.il/news/article.aspx?did=1000583856)
 * [מסמנים מטרה](https://www.facebook.com/avi.weissmsc/posts/10158099336785312)
+* [הסטורית החיסולים הפוליטיים של פרקליטות המדינה](https://mida.org.il/2017/01/04/%D7%A9%D7%9C%D7%98%D7%95%D7%9F-%D7%94%D7%97%D7%95%D7%A7-%D7%94%D7%99%D7%A1%D7%98%D7%95%D7%A8%D7%99%D7%AA-%D7%94%D7%97%D7%99%D7%A1%D7%95%D7%9C%D7%99%D7%9D-%D7%94%D7%A4%D7%95%D7%9C%D7%99%D7%98%D7%99/)
 * [2015: מנדלבליט טען שתפרו לו תיק](https://www.maariv.co.il/news/law/Article-691524)
 * [מינויים לא לגיטימיים התבצעו בפרקליטות](https://www.facebook.com/permalink.php?story_fbid=2240866776213184&id=100008696496760)
 * [הצד האפל של מערכת המשפט](https://www.facebook.com/danny.hendler/posts/10157923390242888)
