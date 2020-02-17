@@ -52,12 +52,14 @@
 ## אשכנזי
 
 * [אשכנזי ביצע עברות חמורות](https://twitter.com/netanelgla/status/1226599357765562369?s=20)
+* [השאיר ריח של פגר בחדר](https://youtu.be/n58n9GgpTGU)
 
 ## מהן העמדות של כחול לבן?
 
 * [שלל עמדות. חזק](https://youtu.be/taDXd-GePwU)
 * [כחול לבן בעצם חייבית לציית לאחמד טיבי, יועצו של ערפאת](https://twitter.com/netanyahu/status/1216723202682105857)
 * [אחמד טיבי, למשל](https://twitter.com/Michael50616567/status/1226498560142823437?s=20)
+* [סגור. יקימו עם המשותפת וליברמן](https://youtu.be/BRqoDmlq0qQ)
 * [סגן ראש השב"כ לשעבר: סולקתי כמחווה למשותפת](https://twitter.com/DannyHendler/status/1226836599515893760?s=20)
 * [אימן עודה: גנץ חייב להתחייב לא לספח](https://twitter.com/newsisrael13/status/1227178688690651136?s=20)
 * [סגור - ליברמן ישב עם גנץ בתמיכת המשותפת](https://twitter.com/talia_einhorn/status/1227366485099716609?s=20)
