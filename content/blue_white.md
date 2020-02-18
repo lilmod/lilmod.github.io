@@ -53,6 +53,7 @@
 
 * [אשכנזי ביצע עברות חמורות](https://twitter.com/netanelgla/status/1226599357765562369?s=20)
 * [השאיר ריח של פגר בחדר](https://youtu.be/n58n9GgpTGU)
+* [עבריין](https://www.maariv.co.il/elections2019/news/Article-691550)
 * [מידע רב על מנדלבליט ואשכנזי](https://www.youtube.com/watch?v=Xj2f30iijg4&feature=youtu.be)
 
 ## מהן העמדות של כחול לבן?
