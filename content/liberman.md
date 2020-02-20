@@ -2,6 +2,7 @@
 
 # ליברמן
 
+* [ישראל ביתנו מטיפה לשנאה. אתר שהוקם ללחימה בבעיה](http://stophatred.rjews.com/)
 * [הרוסים עוזבים את ליברמן](https://twitter.com/c_shlomit/status/1227928977232277504?s=20)
 * [הצבעת ליברמן, קבלת מרץ](https://twitter.com/drordvash/status/1227970852693651457?s=20)
 * [סגור - ליברמן ישב עם גנץ בתמיכת המשותפת](https://twitter.com/talia_einhorn/status/1227366485099716609?s=20)
