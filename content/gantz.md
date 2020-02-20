@@ -61,6 +61,7 @@
 * [בעיות בתקשור בסיסי](https://twitter.com/gaby111153/status/1226144542950412288?s=20)
 * [הוא גם דביל בתחום הכלכלה](https://twitter.com/igal_malka/status/1227485692042891264?s=20)
 * [הסכנה](https://twitter.com/c_shlomit/status/1228252582784782337?s=20)
+* [כספי המישים](https://youtu.be/IzCXnf3ZWQY)
 * [ושוב גמגום](https://twitter.com/BoazGolan/status/1226582619103645699?s=20)
 * [היושב בראש](https://twitter.com/RomanoHoring/status/1226954883905003525?s=20)
 * [כשבני מנסה להראות חברמן](https://twitter.com/OraKesselman/status/1226788350952116224?s=20)
