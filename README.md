@@ -7,6 +7,7 @@
 * [השוואת נתונים בעשור האחרון](https://imgur.com/PcMt3Br)
 * [מה יש להם? חזק](https://youtu.be/DGaEOUj5F3U)
 * [שחמט](https://youtu.be/YJkcn2fKslg)
+* [מנדלבליט מושחת חלק א](https://youtu.be/kQnDJiuEcIk) [חלק ב](https://youtu.be/2L1p1WqdYwE)
 
 ## נושאים
 
