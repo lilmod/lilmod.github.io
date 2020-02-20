@@ -59,6 +59,7 @@
 * [עבריין](https://www.maariv.co.il/elections2019/news/Article-691550)
 * [מידע רב על מנדלבליט ואשכנזי](https://www.youtube.com/watch?v=Xj2f30iijg4&feature=youtu.be)
 * [אשכנזי מנדלבליט וההקלטות](https://www.youtube.com/watch?v=yTwds7jyRKg&feature=youtu.be)
+* [אשכנזי והרפז. חזק. חלק א](https://youtu.be/-f3XIEiV668) [חלק ב](https://youtu.be/KXt6Kv_RAOc)
 
 ## מהן העמדות של כחול לבן?
 
