@@ -60,5 +60,6 @@
 * [כשבני מנסה להראות חברמן](https://twitter.com/OraKesselman/status/1226788350952116224?s=20)
 * [אין מה לעשות, הוא פשוט מצחיק](https://twitter.com/iki_cohen/status/1227333713295486976?s=20)
 * [גנציזם](https://twitter.com/BeGooDoGood/status/1227352112763482112?s=20)
+* [תקף זקן מול מצלמה!](https://twitter.com/motis31/status/1230245619165532161?s=20)
 
 </div>
