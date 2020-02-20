@@ -16,6 +16,7 @@
 * [בני גנץ הציג מישהו שכביכול עבר מליכוד לכחל"ב. תוך 5 דקות מצאו שזה שקר](https://twitter.com/ayeletsl/status/1226977166879055872?s=20)
 
 ## כחול לבן יקימו ממשלה בתמיכת המאוחדת
+
 * [גנץ מודה שזו התכנית](https://twitter.com/GolanMay/status/1227579628044406786?s=20)
 * [כחול לבן בעצם חייבית לציית לאחמד טיבי, יועצו של ערפאת](https://twitter.com/netanyahu/status/1216723202682105857)
 * [אחמד טיבי, למשל](https://twitter.com/Michael50616567/status/1226498560142823437?s=20)
@@ -69,7 +70,7 @@
 * [סגור - ליברמן ישב עם גנץ בתמיכת המשותפת](https://twitter.com/talia_einhorn/status/1227366485099716609?s=20)
 * [שלח ופרץ כבר מזמן סגרו דיל עם המאוחדת](https://twitter.com/MiriBarbi/status/1227301355234242561?s=20)
 * [היה הסכם עם המאוחדת, ליברמן חזר בו](https://twitter.com/DarashLimor/status/1214423090643513345?s=20)
-* [בני גנץ רוצה לממש את מדיניות השמאל הקיצוני](https://twitter.com/GuyCamelmacher/status/1220095015134879753)
+* [בני גנץ רוצה לממש את מדיניות השמאל הקיצוני](https://youtu.be/0Q2g58WqM2E)
 * [ראיון עם עופר שלח](https://www.facebook.com/erez.tadmor.9/videos/10156651415852109/)
 * [ריבונות או התנתקות? חזק](https://twitter.com/igal_malka/status/1224792376356589569?s=20)
 * [לגנץ יש עמדות של שמאל חזק](https://twitter.com/purplerainf/status/1225468130241253376?s=20)
