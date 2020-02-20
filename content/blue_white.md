@@ -24,6 +24,7 @@
 * [סגור - ליברמן ישב עם גנץ בתמיכת המשותפת](https://twitter.com/talia_einhorn/status/1227366485099716609?s=20)
 * [שלח ופרץ כבר מזמן סגרו דיל עם המאוחדת](https://twitter.com/MiriBarbi/status/1227301355234242561?s=20)
 * [היה הסכם עם המאוחדת, ליברמן חזר בו](https://twitter.com/DarashLimor/status/1214423090643513345?s=20)
+* [עופר שלח: בקעת הירדן לא היתה ולא תהיה במצע כחל"ב](https://rotter.net/forum/scoops1/597275.shtml)
 
 ## יכולות צבאיות?
 
@@ -78,5 +79,6 @@
 * [הרשות רוצה את כחל"ב בשלטון](https://twitter.com/amit_segal/status/1224314763154460672?s=20)
 * [למה בוחרי כחול לבן והרשות רוצים אותו דבר?](https://twitter.com/michael_dvorin/status/1226051393523474432?s=20)
 * [ביבי: כחול לבן זה שמאל](https://youtu.be/oGVeJwyAeec?t=635)
+* [עופר שלח: בקעת הירדן לא היתה ולא תהיה במצע כחל"ב](https://rotter.net/forum/scoops1/597275.shtml)
 
 </div>
