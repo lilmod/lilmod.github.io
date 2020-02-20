@@ -19,6 +19,7 @@
 
 ## תפקודו בעסקים
 
+* [מיד אחרי הבחירות, המימד החמישי תחקר. משום מה היתה התמהמהות של שנה וחצי בקטע. תשוו לביבי, שם רצו לאורך כל הדרך ופרסמן לפני מועדי בחירות](https://twitter.com/amit_segal/status/1230189872629141505)
 * [המימד החמישי](https://twitter.com/MiriBarbi/status/1223937328382726145?s=20)
 * [פרשת המימד החמישי בכלל לא נחקרה. חזק](https://www.youtube.com/watch?v=qk2Nv9W6pLA&feature=youtu.be&fbclid=IwAR1b3ZNJ5qninJOgYDofMUbm6Q2VC8CMdXwJebmngB8FwObwQKgT9P_-2_s)
 * [הונאת המימד החמישי](https://twitter.com/Tsahihagag/status/1225047770513453056?s=20)
