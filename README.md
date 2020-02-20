@@ -4,7 +4,7 @@
 
 ברוכים הבאים לאתר
 
-* [השוואת נתונים בעשור האחרון](https://twitter.com/ZafrirRon/status/1228310457527734272?s=20)
+* [השוואת נתונים בעשור האחרון](https://imgur.com/PcMt3Br)
 * [מה יש להם? חזק](https://youtu.be/DGaEOUj5F3U)
 * [שחמט](https://youtu.be/YJkcn2fKslg)
 
