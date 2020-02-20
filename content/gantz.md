@@ -8,6 +8,7 @@
 ## תפקודו בצבא
 
 * [חיוני: תפקודו של גנץ. לשמוע עד הסוף](https://www.facebook.com/GaleyIsrael/videos/369660013721104/)
+* [גנץ ותפקודו הצבאי](https://youtu.be/XlwEdbAM1JM)
 * [גנץ סיכן חיילים. חזק מאוד](https://twitter.com/galidalal/status/1226366099052253185?s=20)
 * [גנץ גאה שהוא סיכן חיילים](https://www.youtube.com/watch?v=LdGlZ4HXzx4&feature=share&fbclid=IwAR3bM4vLH_zAg5BG4rbzxXCxuxFBnD4Jn5AOszbqj4noHoRvVS66b3EIj5E)
 * [שוב, גנץ סיכן חיילים](https://twitter.com/netanyahu/status/1226861937604071425?s=20)
