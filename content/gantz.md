@@ -57,7 +57,7 @@
 * [בני באג. חזק](https://m.news1.co.il/ArticlePage.aspx?docid=138403&subjectid=26)
 * [למה עד עכשיו לא ראינו קליפ של גנץ מדבר עם טראמפ?](https://twitter.com/yossidavidov10/status/1227316145742647297?s=20)
 * [מה שביבי עושה ביממה גנץ לא מסוגל בכלל לעשות](https://twitter.com/c_shlomit/status/1226271731901489152?s=20)
-* [גנץ צנוע? פייק](https://www.facebook.com/photo.php?fbid=2537619173032594&set=a.1016750991786094&type=3)
+* [שלום, אין לי מושג איפה אני](https://youtu.be/XfNksk0t9qk)
 * [בעיות בתקשור בסיסי](https://twitter.com/gaby111153/status/1226144542950412288?s=20)
 * [הוא גם דביל בתחום הכלכלה](https://twitter.com/igal_malka/status/1227485692042891264?s=20)
 * [הסכנה](https://twitter.com/c_shlomit/status/1228252582784782337?s=20)
@@ -68,5 +68,6 @@
 * [אין מה לעשות, הוא פשוט מצחיק](https://twitter.com/iki_cohen/status/1227333713295486976?s=20)
 * [גנציזם](https://twitter.com/BeGooDoGood/status/1227352112763482112?s=20)
 * [תקף זקן מול מצלמה!](https://twitter.com/motis31/status/1230245619165532161?s=20)
+* [גנץ צנוע? פייק](https://www.facebook.com/photo.php?fbid=2537619173032594&set=a.1016750991786094&type=3)
 
 </div>
