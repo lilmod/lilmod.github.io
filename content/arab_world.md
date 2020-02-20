@@ -15,5 +15,6 @@
 * [מרצה ערבי: מי שלא מצביע לימין גורם לשפיכת דמים](https://twitter.com/ayeletsl/status/1224419208563449857?s=20)
 * [ביבי מתראיין אצל מדיה ערבית-ישראלית](https://www.panet.co.il/article/2848711)
 * [ערבים מגיעים לכינוסים של ביבי](https://twitter.com/Israelcohen911/status/1225340928526897152?s=20)
+* [ערבי תומך טרור לשעבר מסביר למה הוא תומך בימין](https://youtu.be/4-ocMtc5gww)
 
 </div>
