@@ -21,5 +21,6 @@
 * [לעומת זאת יגאל גואטה לא הושעה](https://twitter.com/xKAR6Ew971p8rDs/status/1228042025112608768)
 * [אמנון אברמוביץ' - עיתונאי אוביקטיבי](https://twitter.com/v8fkLjLoVc7b910/status/1228040763147268097?s=20)
 * [זרקה תפוח על ראש הממשלה -- וקבלה ראיון בחדשות](https://youtu.be/e9ZkGYxYAdY)
+* [השתיקה בפרשת אשכנזי רועמת](https://www.makorrishon.co.il/opinion/204901/)
 
 </div>
