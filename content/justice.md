@@ -64,9 +64,7 @@
 * [מינוי קרובים של ברק](https://www.facebook.com/permalink.php?story_fbid=2219134361719759&id=100008696496760)
 * [להגיש כתבי אישום נגד שופטים סורחים](https://m.news1.co.il/ArticlePage.aspx?docid=96460&subjectid=3)
 * [סרטון על מינוי שופטים](https://twitter.com/Meshilut/status/1226598593592688642?s=20)
-
-
-
+* [בפרוטוקול של מינוי כרייף (שמתברר שנעשה בתמורה לסקס) יש 65 מילים בלבד](https://www.themarker.com/law/.premium-1.8558163)
 
 ## האם לרשות השופטת יש כח מופרז?
 
