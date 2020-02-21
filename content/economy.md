@@ -11,6 +11,7 @@
 * [המצב בתקשורת לעומת המציאות](https://www.facebook.com/watch/?v=2312068642231275)
 * [יועצת לענייני עסקים קטנים](https://www.facebook.com/Netanyahu/videos/578755389397115/)
 * [השוואת נתונים בעשור האחרון](https://twitter.com/ZafrirRon/status/1228310457527734272?s=20)
+* [ברקת מתראין על רפורמות כלכליות](https://www.youtube.com/watch?v=Iy_sRu2-w0k)
 
 # מתווה הגז
 
