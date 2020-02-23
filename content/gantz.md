@@ -21,6 +21,7 @@
 
 * [חקירת המימד החמישי. היבטים פליליים](https://www.news1.co.il/Archive/0024-D-139334-00.html)
 * [שקרים של המימד החמישי](https://www.youtube.com/watch?v=RaL90gDbuBI&feature=share&fbclid=IwAR3bIWG3aHNr-VwFaa42Ypx89ZTfI-Tg7Lc3cz5E4RxuOYLa8XWfgwE1V7Q)
+* [אילה חסון על המימד החמישי](https://youtu.be/9fCYRPZJHl4)
 * [מיד אחרי הבחירות, המימד החמישי תחקר. משום מה היתה התמהמהות של שנה וחצי בקטע. תשוו לביבי, שם רצו לאורך כל הדרך ופרסמו לפני מועדי בחירות](https://twitter.com/amit_segal/status/1230189872629141505)
 * [המימד החמישי](https://twitter.com/MiriBarbi/status/1223937328382726145?s=20)
 * [פרשת המימד החמישי בכלל לא נחקרה. חזק](https://www.youtube.com/watch?v=qk2Nv9W6pLA&feature=youtu.be&fbclid=IwAR1b3ZNJ5qninJOgYDofMUbm6Q2VC8CMdXwJebmngB8FwObwQKgT9P_-2_s)
