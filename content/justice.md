@@ -17,6 +17,7 @@
 * [פרשת הרפז וצו איסור פירסום](https://www.facebook.com/TalOr314/posts/2354275401550425)
 * [מידע רב על מנדלבליט ואשכנזי](https://www.youtube.com/watch?v=Xj2f30iijg4&feature=youtu.be)
 * [מטורף! ועדת  המינוי לא רצתה לעבוד קשה ולבדוק את חלקו של מנדלבליט בפרשת הרפז, אז פשוט אישרה אותו](https://imgur.com/Lu1Ge6K)
+* [ועדת המינוי לא סיפקה מספיק מועמדים. אחרי קיפאון, התפשרו על 1](https://imgur.com/TYOX9Q3)
 * [היועץ פוסל מחליפה זמנית לשי ניצן](https://www.facebook.com/kinneret.barashi/posts/10221707975355086)
 * [כתב אישום לא לגיטימי](https://twitter.com/GadiTaub1/status/1223125369487810560)
 * [מדוע מנדלבליט נאבק במינוי? כי כל התיק נגד ביבי היב בעיתי](https://www.israelhayom.co.il/article/730083)
