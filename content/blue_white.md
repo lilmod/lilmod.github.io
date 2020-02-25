@@ -2,6 +2,7 @@
 
 # כחול לבן
 
+* [כחול לבן היא מפלגת הפקידים הבלתי נבחרים. לא יאומן](https://imgur.com/a/TtAE8Wa)
 * [חזק מאוד](https://www.youtube.com/watch?v=1QmUCtF9hAU)
 * [כל כך הרבה עמדות. חזק](https://youtu.be/taDXd-GePwU)
 * [קטעים מנבואותיהם של אנשי כחל"ב](https://www.facebook.com/watch/?v=553520195237470)
