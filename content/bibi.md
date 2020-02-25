@@ -2,6 +2,7 @@
 
 # בנימין נתניהו
 
+* [חזק מאוד -- תכנית המאה](https://youtu.be/XM_pY-_0cxA)
 * [איך רואים מנהיגים אמריקאים את ביבי מול גנץ. חובה](https://twitter.com/MiriBarbi/status/1223620835153514496?s=20)
 * [איך רואים מנהיגים אמריקאים את ביבי מול גנץ-חלק ב. חובה](https://twitter.com/MiriBarbi/status/1223621025105137664?s=20)
 * [אימן עודה מדבר על הישגיו של ביבי. חזק](https://www.youtube.com/watch?v=fa5-jmHtBCM)
