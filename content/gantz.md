@@ -60,6 +60,7 @@
 * [אפס מנהיגות](https://twitter.com/EstreicherSarit/status/1224371433473814532?s=20)
 * [מעריב: אפס מנהיגות](https://www.maariv.co.il/journalists/Article-684181)
 * [לא מעכל מידע טוב](https://twitter.com/ramieshel/status/1225135988890050566?s=20)
+* [לוקח כדורים כלשהם](https://drive.google.com/file/d/1TDnYVl0D46jWVHxFzoiYzJLNuswwTlxa/view)
 * [אדם חלש. חזק מאוד](https://www.facebook.com/erez.tadmor.9/posts/10156812590162109)
 * [גנץ תקף את ביבי: אם הייתי שם, לא הייתי זז... אבל](https://twitter.com/mcl_bgn/status/1223739920268787712?s=20)
 * [קיר ואבנים](https://twitter.com/YanivTurgi/status/1211599161075875840)
