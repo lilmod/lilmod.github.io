@@ -61,6 +61,7 @@
 * [מידע רב על מנדלבליט ואשכנזי](https://www.youtube.com/watch?v=Xj2f30iijg4&feature=youtu.be)
 * [אשכנזי מנדלבליט וההקלטות](https://www.youtube.com/watch?v=yTwds7jyRKg&feature=youtu.be)
 * [אשכנזי והרפז. חזק. חלק א](https://youtu.be/-f3XIEiV668) [חלק ב](https://youtu.be/KXt6Kv_RAOc)
+* [אשכנזי הטעה משקיעים בחברת שמן](https://www.facebook.com/photo.php?fbid=2288966368069891&set=a.1743514622615071&type=3&theater)
 
 ## מהן העמדות של כחול לבן?
 
