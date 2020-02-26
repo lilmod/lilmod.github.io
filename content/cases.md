@@ -10,6 +10,7 @@
 
 ## תיק 4000
 
+* [חזק. עדו נתניהו מדבר](https://youtu.be/BbzsGLnlvD4)
 * [חזק מאוד. ניצב משנה בדימוס אבי וייס על התיק](https://www.inn.co.il/News/News.aspx/427677)
 * [חזק מאוד. אבי וייס נכנס לפרטים](https://www.youtube.com/watch?v=0mLmWAS8RIo)
 * [שקרים עיקריים בתיק 4000, ממומחה בשוק התקשורת](https://www.facebook.com/permalink.php?story_fbid=2210744375892091&id=100008696496760)
