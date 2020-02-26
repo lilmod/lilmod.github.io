@@ -4,6 +4,7 @@
 
 * [כחול לבן היא מפלגת הפקידים הבלתי נבחרים. לא יאומן](https://imgur.com/a/TtAE8Wa)
 * [חזק מאוד](https://www.youtube.com/watch?v=1QmUCtF9hAU)
+* [מפלגת גנרלים זה דבר רע](https://www.facebook.com/photo.php?fbid=10157848062721768&set=a.411182811767&type=1&theater)
 * [כל כך הרבה עמדות. חזק](https://youtu.be/taDXd-GePwU)
 * [קטעים מנבואותיהם של אנשי כחל"ב](https://www.facebook.com/watch/?v=553520195237470)
 * [המצע הכלכלי של כחול לבן, לעומת השר אוחנה](https://www.facebook.com/photo.php?fbid=10157786445626768&set=a.411182811767&type=3&theater)
