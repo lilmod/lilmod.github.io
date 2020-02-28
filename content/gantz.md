@@ -2,7 +2,7 @@
 
 # בני גנץ
 
-* [היועץ של גנץ: אדם טיפש, לא יתקוף באירן. סכנה לישראל. חובה](https://youtu.be/JnHHeqRzVGw)
+* [היועץ של גנץ: אדם אפס, לא יתקוף באירן. סכנה לישראל. חובה](https://youtu.be/JnHHeqRzVGw)
 * [חזק מאוד](https://www.youtube.com/watch?v=1QmUCtF9hAU)
 * [חשוב מאוד: איראן פרצה לטלפון של גנץ. היו לו תמונות ערום מהתכתבות עם מאהבת, והוא שיקר לשב"כ. הוא סחיט!](https://www.news1.co.il/Archive/001-D-422742-00.html)
 * [כחול לבן היא מפלגת הפקידים הבלתי נבחרים. לא יאומן](https://imgur.com/a/TtAE8Wa)
@@ -14,6 +14,7 @@
 * [גנץ ותפקודו הצבאי](https://youtu.be/XlwEdbAM1JM)
 * [גנץ סיכן חיילים. חזק מאוד](https://youtu.be/MhwgmvvetQg)
 * [גנץ גאה שהוא סיכן חיילים](https://www.youtube.com/watch?v=LdGlZ4HXzx4&feature=share&fbclid=IwAR3bM4vLH_zAg5BG4rbzxXCxuxFBnD4Jn5AOszbqj4noHoRvVS66b3EIj5E)
+* [לא מסוגל להיות מנהיג](https://mida.org.il/2020/02/28/%d7%91%d7%a0%d7%99-%d7%92%d7%a0%d7%a5-%d7%a4%d7%a9%d7%95%d7%98-%d7%9c%d7%90-%d7%9e%d7%a1%d7%95%d7%92%d7%9c-%d7%9c%d7%a7%d7%91%d7%9c-%d7%94%d7%97%d7%9c%d7%98%d7%95%d7%aa-%d7%96%d7%94-%d7%9c%d7%90/?fbclid=IwAR3Xcqo6SANPk0WbtdcuO42DFJ2yN_c7HuUZKGZUShwdETYI8MdGhhaS_Os)
 * [גנץ היה מנוף לתכנית הנסיגה ושיתף פעולה עם אובמה נגד הדרג המדיני](https://twitter.com/Vitaliko/status/1226113323634241536?s=20)
 * [עדות לפני מלחמת לבנון ב'. מדהים](https://imgur.com/a/in4eons)
 * [גנץ תרם לקריסת צה"ל בלבנון. מנהיג חסר יכולת](https://www.maariv.co.il/journalists/opinions/Article-651104)
@@ -55,6 +56,8 @@
 
 ## יכולות של מנהיג?
 
+* [יועצו הקרוב: הוא אפס. חזק](https://www.youtube.com/watch?v=JnHHeqRzVGw)
+* [לא מסוגל להיות מנהיג](https://mida.org.il/2020/02/28/%d7%91%d7%a0%d7%99-%d7%92%d7%a0%d7%a5-%d7%a4%d7%a9%d7%95%d7%98-%d7%9c%d7%90-%d7%9e%d7%a1%d7%95%d7%92%d7%9c-%d7%9c%d7%a7%d7%91%d7%9c-%d7%94%d7%97%d7%9c%d7%98%d7%95%d7%aa-%d7%96%d7%94-%d7%9c%d7%90/?fbclid=IwAR3Xcqo6SANPk0WbtdcuO42DFJ2yN_c7HuUZKGZUShwdETYI8MdGhhaS_Os)
 * [אפילו השמאל כבר צוחק עליו](https://www.youtube.com/watch?v=djidghnZNuY)
 * לגנץ לכאורה יש חוסר יכולת מוחלט לדבר בפומבי, דבר שנחוץ מאוד לראש ממשלה.
 [למשל, הוא זקוק לשלשה טלפרומטרים](https://twitter.com/nachi_z9/status/1221154666085539840?s=20)
