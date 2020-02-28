@@ -5,6 +5,7 @@
 * [גנץ סגר עם מרצ והעבודה. תמיכה מבחוץ של ליברמן והמשותפת](https://imgur.com/a/91VTT9w)
 * [כחול לבן היא מפלגת הפקידים הבלתי נבחרים. לא יאומן](https://imgur.com/a/TtAE8Wa)
 * [חזק מאוד](https://www.youtube.com/watch?v=1QmUCtF9hAU)
+* [יוציאו את המילה 'יהודית' מחוק הלאום לרצות את המשותפת](https://youtu.be/IHyc_yPxQn8)
 * [מפלגת גנרלים זה דבר רע](https://www.facebook.com/photo.php?fbid=10157848062721768&set=a.411182811767&type=1&theater)
 * [כל כך הרבה עמדות. חזק](https://youtu.be/taDXd-GePwU)
 * [קטעים מנבואותיהם של אנשי כחל"ב](https://www.facebook.com/watch/?v=553520195237470)
@@ -88,6 +89,7 @@
 * [הרשות רוצה את כחל"ב בשלטון](https://twitter.com/amit_segal/status/1224314763154460672?s=20)
 * [למה בוחרי כחול לבן והרשות רוצים אותו דבר?](https://twitter.com/michael_dvorin/status/1226051393523474432?s=20)
 * [ביבי: כחול לבן זה שמאל](https://youtu.be/oGVeJwyAeec?t=635)
+* [יוציאו את המילה 'יהודית' מחוק הלאום לרצות את המשותפת](https://youtu.be/IHyc_yPxQn8)
 * [עופר שלח: בקעת הירדן לא היתה ולא תהיה במצע כחל"ב](https://rotter.net/forum/scoops1/597275.shtml)
 
 </div>
