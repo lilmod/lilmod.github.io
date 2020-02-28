@@ -34,4 +34,6 @@
 # המסעדה?
 * [אין סיכוי שזה עלה 100,000 ש"ח](https://imgur.com/a/FLFmC4V)
 
+# עזה
+* [מאמר מעולה. גם מראה את האסטרטגיה של ביבי](https://www.israelhayom.co.il/opinion/737197)
 </div>
