@@ -14,6 +14,7 @@
 * [חזק מאוד. לקרוע את המסך האדום](https://www.israelhayom.co.il/opinion/735035)
 * [התקשורת בארץ היא ברובה ארגון תעמולה לשמאל. דוגמא](https://twitter.com/hananamiur/status/1226209922800594944?s=20)
 * [תקשורת אוביקטיבית](https://twitter.com/GolanOfer/status/1228026248930177024?s=20)
+* [רינה מצליח מדגימה מה זה תקשורת אוביקטיבית](https://youtu.be/kQ1COlm1Zs0)
 * [פרחים לאבי גבאי](https://twitter.com/Onetruth011/status/1228032101246697473?s=20)
 * [תעמולה נגד תכנית המאה בערוץ כאן](https://twitter.com/keslasy/status/1228039715435302914?s=20)
 * [תאגיד כאן הוא חרפה](https://twitter.com/keslasy/status/1228045583312719877?s=20)
