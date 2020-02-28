@@ -2,6 +2,7 @@
 
 # כחול לבן
 
+* [גנץ סגר עם מרצ והעבודה. תמיכה מבחוץ של ליברמן והמשותפת](https://twitter.com/netanyahu/status/1233385087330324481?s=20)
 * [כחול לבן היא מפלגת הפקידים הבלתי נבחרים. לא יאומן](https://imgur.com/a/TtAE8Wa)
 * [חזק מאוד](https://www.youtube.com/watch?v=1QmUCtF9hAU)
 * [מפלגת גנרלים זה דבר רע](https://www.facebook.com/photo.php?fbid=10157848062721768&set=a.411182811767&type=1&theater)
