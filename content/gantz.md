@@ -15,6 +15,7 @@
 * [גנץ סיכן חיילים. חזק מאוד](https://youtu.be/MhwgmvvetQg)
 * [גנץ גאה שהוא סיכן חיילים](https://www.youtube.com/watch?v=LdGlZ4HXzx4&feature=share&fbclid=IwAR3bM4vLH_zAg5BG4rbzxXCxuxFBnD4Jn5AOszbqj4noHoRvVS66b3EIj5E)
 * [גנץ היה מנוף לתכנית הנסיגה ושיתף פעולה עם אובמה נגד הדרג המדיני](https://twitter.com/Vitaliko/status/1226113323634241536?s=20)
+* [עדות לפני מלחמת לבנון ב'. מדהים](https://imgur.com/a/in4eons)
 * [גנץ תרם לקריסת צה"ל בלבנון. מנהיג חסר יכולת](https://www.maariv.co.il/journalists/opinions/Article-651104)
 * [שרון הבין שגנץ סירס את הצבא](https://twitter.com/theShimon1/status/1225945182539046912?s=20)
 * [הקריב 16 חיילים](https://twitter.com/igal_malka/status/1226928405662314496?s=20)
@@ -47,7 +48,6 @@
 
 ## עמדות
 
-* מהן העמדות של גנץ? עדיין לאף אחד לא ברור.
 * [גנץ מבטיח לממש את אג'נדת השמאל](https://youtu.be/0Q2g58WqM2E)
 * [גנץ לכאורה היה מוכן לעימות. פתאום כשביבי הסכים שינה את דעתו. מה קרה?](https://youtu.be/atKyVAhbkoU)
 * [רגע, אז הוא סומך על מערכת אכיפת החוק, או שלא?](https://imgur.com/53ulBSL)
