@@ -29,6 +29,7 @@
 * [אילה חסון על המימד החמישי](https://youtu.be/9fCYRPZJHl4)
 * [מיד אחרי הבחירות, המימד החמישי תחקר. משום מה היתה התמהמהות של שנה וחצי בקטע. תשוו לביבי, שם רצו לאורך כל הדרך ופרסמו לפני מועדי בחירות](https://twitter.com/amit_segal/status/1230189872629141505)
 * [המימד החמישי](https://twitter.com/MiriBarbi/status/1223937328382726145?s=20)
+* [המשטרה העבירה למימד החמישי את כל המידע על אזרחי ישראל](https://drive.google.com/file/d/1y_3zAxh_RFyeRPctrSFyIaQF5iJsjcSn/view)
 * [פרשת המימד החמישי בכלל לא נחקרה. חזק](https://www.youtube.com/watch?v=qk2Nv9W6pLA&feature=youtu.be&fbclid=IwAR1b3ZNJ5qninJOgYDofMUbm6Q2VC8CMdXwJebmngB8FwObwQKgT9P_-2_s)
 * [הונאת המימד החמישי](https://twitter.com/Tsahihagag/status/1225047770513453056?s=20)
 * [לגנץ אין מושג אפילו מה קרה לחברה בסוף](https://twitter.com/nisimshery/status/1161600580999110656?s=20)
