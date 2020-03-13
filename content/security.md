@@ -15,6 +15,7 @@
 אובמה אכן לא הצליח להשיג מספיק תמיכה בקונגרס,
 ולכן היה צריך להעביר אותו כפקודה נשיאותית,
 מה שנתן את היכולת לטראמפ לבטל את ההסכם בקלות.
+* [מעריב: נתניהו צדק בקשר לעסקת הגרעין](https://www.maariv.co.il/journalists/opinions/Article-753767)
 * [בעוד ביבי נאם בקונגרס ובאו"ם נגד ההסכם, גנץ קיבל אותו כעובדה מוגמרת, והעדיף שהעולם והאירופאים יטפלו באיראן](https://www.israelhayom.co.il/article/635887?utm_source=General&fbclid=IwAR3O7RFJc370yb6SpOr-3OQhYnTLJMHGPMTbvUTp3gYgM4Dr3hnfIsM6JqM)
 * [עמדת גנץ: תמך בהסכם ולא ראה בו סכנה](https://www.israelhayom.co.il/article/635887&utm_source=ALL&utm_medium=share&utm_campaign=IHNewApp)
 * [גנץ לא חשב על האפשרות לדחוף לבטל את ההסכם והשלים איתו](https://twitter.com/mcl_bgn/status/1224777464649482240?s=20)
