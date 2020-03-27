@@ -1,42 +1,16 @@
-Close
-Search...
-LATEST
-POLITICS
-CULTURE
-MAGAZINE
-CLIMATE
-BOOKS
-PHOTOGRAPHY
-NEWSLETTER
-SUBSCRIBE
-DONATE
-About
-Advertise
-Contact
-Press
-Jobs
-RSS
-Masthead
-Privacy
-Subscriber Services
-Menu
-MAGAZINESUBSCRIBESIGN IN
-Enlightened Despot
+# Enlightened Despot
 By RICHARD A. POSNER
-April 23, 2007Add to Pocket
-Richard A. Posner is a judge on the U.S. Court of Appeals for theSeventh Circuit and a senior lecturer at the University of ChicagoLaw School.
+April 23, 2007
+Richard A. Posner is a judge on the U.S. Court of Appeals for theSeventh Circuit and a senior lecturer at the University of Chicago Law School.
 
-MOST POPULAR
-The Republican Plot to Save the Rich
-Trumpworld Embraces the Death Wish Economy
-The Cult of the Shining City Embraces the Plague
-Trump Doesn’t Care About You
-What Climate Grief Taught Me About the Coronavirus
+Note: Taken from [the New Republic](https://newrepublic.com/article/60919/enlightened-despot).
+Since this article seems to have been scanned badly, I took it upon myself to correct the errors created during scanning.
+None of the content was changed in the process.
+
 The Judge in a Democracy By Aharon Barak
-
 (Princeton University Press, 332 pp., $29.95)
 
-Aharon Barak, a long-serving justice (eventually the chief justice)of the Supreme Court of Israel, who recently reached mandatoryretirement age, is a prolific writer, and this is his most recentbook. It is an important document, less for its intrinsic meritsthan for its aptness to be considered Exhibit A for why Americanjudges should be extremely wary about citing foreign judicialdecisions. Barak is a world-famous judge who dominated his court ascompletely as John Marshall dominated our Supreme Court. If therewere a Nobel Prize for law, Barak would probably be an earlyrecipient. But although he is familiar with the American legalsystem and supposes himself to be in some sort of sync with liberalAmerican judges, he actually inhabits a completely different--and,to an American, a weirdly different--juristic universe. I have mydifferences with Robert Bork, but when he remarked, in a review ofThe Judge in a Democracy, that Barak "establishes a world recordfor judicial hubris," he came very near the truth.
+Aharon Barak, a long-serving justice (eventually the chief justice) of the Supreme Court of Israel, who recently reached mandatory retirement age, is a prolific writer, and this is his most recent book. It is an important document, less for its intrinsic merits than for its aptness to be considered Exhibit A for why American judges should be extremely wary about citing foreign judicial decisions. Barak is a world-famous judge who dominated his court as completely as John Marshall dominated our Supreme Court. If there were a Nobel Prize for law, Barak would probably be an early recipient. But although he is familiar with the American legal system and supposes himself to be in some sort of sync with liberal American judges, he actually inhabits a completely different--and, to an American, a weirdly different--juristic universe. I have my differences with Robert Bork, but when he remarked, in a review of The Judge in a Democracy, that Barak "establishes a world record for judicial hubris," he came very near the truth.
 
 Barak is John Marshall without a constitution to expound--or to"expand," as Barak once revealingly misquoted a famous phrase ofMarshall's ("we must never forget it is a constitution that we areexpounding"). Israel does not have a constitution. It has "BasicLaws" passed by the Knesset, Israel's parliament, which Barak hasequated to a constitution by holding that the Knesset cannot repealthem. That is an amazing idea: could our Congress pass a lawauthorizing every American to carry a concealed weapon, and theSupreme Court declare that the law could never be repealed? Andonly one-quarter of the Knesset's members voted for those laws!
 
