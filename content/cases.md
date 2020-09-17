@@ -12,6 +12,7 @@
 
 * [חזק. עדו נתניהו מדבר](https://youtu.be/BbzsGLnlvD4)
 * [20 שקרים](https://www.telecomnews.co.il/image/users/228328/ftp/my_files/%D7%AA%D7%99%D7%A7%20%D7%9E%D7%A7%D7%95%D7%A6%D7%A8%20%D7%99%D7%95%D7%AA%D7%A8%204000-1.pdf?id=32106808)
+* [40 שקרים נוספים](https://www.telecomnews.co.il/%D7%A4%D7%99%D7%A8%D7%95%D7%98-50-%D7%94%D7%A9%D7%A7%D7%A8%D7%99%D7%9D-%D7%91%D7%AA%D7%99%D7%A7-4000-%D7%95%D7%99%D7%A9-%D7%99%D7%95%D7%AA%D7%A8-%D7%A9%D7%9E%D7%A1%D7%AA%D7%99%D7%A8%D7%99%D7%9D-%D7%91%D7%9B%D7%95%D7%95%D7%A0%D7%94-%D7%9E%D7%94%D7%A6%D7%99%D7%91%D7%95%D7%A8-%D7%94%D7%A8%D7%97%D7%91.html)
 * [חזק מאוד. ניצב משנה בדימוס אבי וייס על התיק](https://www.inn.co.il/News/News.aspx/427677)
 * [חזק מאוד. אבי וייס נכנס לפרטים](https://www.youtube.com/watch?v=0mLmWAS8RIo)
 * [שקרים עיקריים בתיק 4000, ממומחה בשוק התקשורת](https://www.facebook.com/permalink.php?story_fbid=2210744375892091&id=100008696496760)
