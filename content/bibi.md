@@ -21,6 +21,7 @@
 * [ביבי מדבר על המצב, הבחירות, גנץ](https://www.facebook.com/Netanyahu/videos/1599901740147980/)
 * [מה שביבי עושה ביממה גנץ לא מסוגל בכלל לעשות](https://twitter.com/c_shlomit/status/1226271731901489152?s=20)
 * [עמידה בלחצים](https://twitter.com/netanyahu/status/1226457962883010560?s=20)
+* [איך שביבי תרם לכלכלה ומדינאות הישראלית בעולם, ע"י דן סינור. חזק](https://youtu.be/Oot3QnxldmU)
 * [ראיון מעולה עם אחיו של ביבי](https://www.israelhayom.co.il/article/721005?fbclid=IwAR1RnOgNo2kTV-RB6Ld5yThj0febm6Vb3lJF-6yjULFwxniel_2b7g6j2lQ)
 * [למנהיג של הודו, מודי, יש קשר חזק עם ביבי](https://twitter.com/yankihebrew/status/1228332209582551046?s=20)
 * [ראיון חזק של ביבי עם בועז גולן](https://www.youtube.com/watch?v=oGVeJwyAeec)
@@ -31,5 +32,8 @@
 * [ביבי על דברים שהיו קשים להשגה](https://twitter.com/c_shlomit/status/1224799923364880386?s=20)
 * [אפילו אברמוביץ משבח את ביבי](https://youtu.be/Re1w7-A2CLc)
 * [ביבי בגיל 28 - תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
+
+# אהבה לספרים
+* [מסר לנוער בטיק טוק](https://youtu.be/JChrrPLWq98)
 
 </div>
