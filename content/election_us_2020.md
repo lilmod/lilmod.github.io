@@ -1,12 +1,30 @@
 # US Election 2020
 
-## Throwing Everything but the Kitchen Sink
+## Everything but the Kitchen Sink
 * [Logical fallacy](https://twitter.com/yotambarnoy/status/1344659317442674693?s=20)
+* [No proof of dead voters in PA](https://www.snopes.com/fact-check/20000-dead-voters-in-pennsylvania/)
+* [Watermark sting operation conspiracy](https://www.snopes.com/fact-check/dhs-watermark-sting/)
+* [Video of frustrated poll worker](https://www.snopes.com/fact-check/atlanta-georgia-voter-fraud-video/)
 
+## Mail-in Ballots
+* [Only sent to all registered voters in some states](https://www.snopes.com/fact-check/millions-mail-in-ballots/)
+
+## Dominion
+* [Did not delete votes for Trump](https://www.snopes.com/fact-check/dominion-deleted-trump-votes/)
+* [Clinton foundation wwnership, vote switching claims](https://www.snopes.com/fact-check/rumor-alert-dominion-voting-systems-fraud-claims/)
+  * Nothing to do with Clinton foundation. Donated to Dems and Reps.
+* [68% error rate report on Antrim, Michigan](https://apnews.com/article/fact-checking-afs:Content:9847904839):
+  * Nonsense. Recount of Antrim gave 12 votes to Trump.
+  * Trump campaign did *not* request hand recount of every ballot in the state (costs money). They could have.
+  
 ## Georgia
 
 * [Trump lies about GA SOS's brother](https://twitter.com/yotambarnoy/status/1344367757391872000?s=20)
 * [Trump still lies about it](https://twitter.com/jaynordlinger/status/1344288006576992258?s=20)
+* [No 'suitcases' of votes in Fulton, unlike video](https://www.snopes.com/fact-check/georgia-suitcases/)
+* [Rate of signature rejection in 2020 consistent with 2018](https://www.snopes.com/fact-check/georgia-signature-audit/)
+* [Poll watchers were not kicked out](https://www.snopes.com/fact-check/poll-watchers-2020-election/)
+* [No dominion server in Germany](https://www.snopes.com/fact-check/dominion-servers-germany-seized/)
 
 ### Georgia Senate Hearing 12/30/20
 
@@ -19,8 +37,20 @@
 * [Witness declaring shredding of ballots is ridiculous](https://twitter.com/stphnfwlr/status/1344326246776365058?s=20)
 
 ### Georgia Cases
+
 * [Trump messing them up. Appeal to get new judge... too late](https://twitter.com/stphnfwlr/status/1343979603543666688)
 
+## Pennsylvania
+
+* [Not true that more votes than voters](https://apnews.com/article/fact-checking-afs:Content:9887147615)
+* [No proof of dead voters in PA](https://www.snopes.com/fact-check/20000-dead-voters-in-pennsylvania/)
+
 ## Lin Wood
+
 * [Is insane. Attacking John Roberts as a pedophile](https://twitter.com/stphnfwlr/status/1344668863137521670?s=20)
 
+## Cases
+* [Allege fraud in non-existent Michigan county](https://www.snopes.com/news/2020/12/01/sidney-powell-election-fraud/)
+
+## Supreme Court
+* [No shouting match in Supreme Court. Snopes.](https://www.snopes.com/fact-check/supreme-court-erupt-shouting-match/)
