@@ -25,6 +25,8 @@
   
 ## Georgia
 
+* [Signature audit in Georgia finds 99% correct results](https://thehill.com/homenews/campaign/532042-georgia-signature-audit-finds-no-fraud-in-presidential-election)
+  * 2 mismatches out of 15,118 samples, wife signed her name for both hers and wife and husband
 * [Trump lies about GA SOS's brother](https://twitter.com/yotambarnoy/status/1344367757391872000?s=20)
 * [Trump still lies about it](https://twitter.com/jaynordlinger/status/1344288006576992258?s=20)
 * [No 'suitcases' of votes in Fulton, unlike video](https://www.snopes.com/fact-check/georgia-suitcases/)
