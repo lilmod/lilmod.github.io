@@ -33,6 +33,9 @@
 * [אפילו אברמוביץ משבח את ביבי](https://youtu.be/Re1w7-A2CLc)
 * [ביבי בגיל 28 - תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
 
+# טענות נגדו
+* [מלפני 22 שנה](https://twitter.com/sari_azoulay/status/1344715397531136000?s=20)
+
 # אהבה לספרים
 * [מסר לנוער בטיק טוק](https://youtu.be/JChrrPLWq98)
 
