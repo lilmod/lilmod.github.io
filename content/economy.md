@@ -3,6 +3,7 @@
 # כלכלת ישראל
 
 * [נתונים שלא שמעתם. חזק](https://youtu.be/q448Ia9PnG0)
+* [המעמד הנמוך והביניים ב10 שנים האחרונות](https://twitter.com/DiscussingEcon1/status/1344680532408496132?s=20)
 * [2020 זינוק בתוצר לנפש](https://www.gplanet.co.il/%d7%a1%d7%95%d7%93-%d7%94%d7%97%d7%93%d7%a8%d7%99%d7%9d-2020-%d7%99%d7%a9%d7%a8%d7%90%d7%9c-%d7%9e%d7%96%d7%a0%d7%a7%d7%aa-%d7%9c%d7%92%d7%91%d7%94%d7%99%d7%9d-%d7%97%d7%93%d7%a9%d7%99%d7%9d-%d7%95/)
 * [דרוג חזק](https://www.facebook.com/649191767/posts/10157780752096768/)
 * [נתונים](https://twitter.com/LiberalRiWo/status/1224437963989217280?s=20)
