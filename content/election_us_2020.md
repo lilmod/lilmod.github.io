@@ -6,6 +6,7 @@
 * [No proof of dead voters in PA](https://www.snopes.com/fact-check/20000-dead-voters-in-pennsylvania/)
 * [Watermark sting operation conspiracy](https://www.snopes.com/fact-check/dhs-watermark-sting/)
 * [Video of frustrated poll worker](https://www.snopes.com/fact-check/atlanta-georgia-voter-fraud-video/)
+* [More votes than eligible voters, "simple math"](https://www.factcheck.org/2020/12/flawed-calculation-behind-false-claim-of-fraudulent-votes/)
 
 ## Mail-in Ballots
 
@@ -51,6 +52,7 @@
 ## Pennsylvania
 
 * [Not true that more votes than voters](https://apnews.com/article/fact-checking-afs:Content:9887147615)
+  * [Trump claims it](https://twitter.com/realDonaldTrump/status/1344054358418345985?s=20)
 * [No proof of dead voters in PA](https://www.snopes.com/fact-check/20000-dead-voters-in-pennsylvania/)
 * [PA Supreme Court rules against observers not allowed <15 ft in Philly](https://www.nbcnews.com/politics/2020-election/pennsylvania-supreme-court-rejects-trump-campaign-claim-problems-ballot-observers-n1248046)
 * [PA had many observers](https://www.politifact.com/factchecks/2020/nov/06/ted-cruz/ted-cruz-falsely-claims-philadelphia-counting-vote/)
