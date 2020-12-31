@@ -2,6 +2,10 @@
 
 # מערכת הבריאות
 
+## הקורונה
+* [נתניהו מעודד את ערביי ישראל להתחסן](https://twitter.com/IsraeliPM_heb/status/1344681262062182401?s=20)
+
+## כללי
 * [נתונים שלא שמעתם. חזק](https://youtu.be/q448Ia9PnG0)
 * [עובדות: בתי חולים חדשים ועוד](https://twitter.com/TalOr314/status/1226575606537650178?s=20)
 * [מערכת הבריאות במצב מצוין](https://www.maariv.co.il/amp/journalists/Article-687269?__twitter_impression=true)
