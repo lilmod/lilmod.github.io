@@ -1,21 +1,25 @@
 # US Election 2020
 
 ## Everything but the Kitchen Sink
+
 * [Logical fallacy](https://twitter.com/yotambarnoy/status/1344659317442674693?s=20)
 * [No proof of dead voters in PA](https://www.snopes.com/fact-check/20000-dead-voters-in-pennsylvania/)
 * [Watermark sting operation conspiracy](https://www.snopes.com/fact-check/dhs-watermark-sting/)
 * [Video of frustrated poll worker](https://www.snopes.com/fact-check/atlanta-georgia-voter-fraud-video/)
 
 ## Mail-in Ballots
+
 * [Only sent to all registered voters in some states](https://www.snopes.com/fact-check/millions-mail-in-ballots/)
 
 ## Dominion
+
 * [Did not delete votes for Trump](https://www.snopes.com/fact-check/dominion-deleted-trump-votes/)
 * [Clinton foundation wwnership, vote switching claims](https://www.snopes.com/fact-check/rumor-alert-dominion-voting-systems-fraud-claims/)
   * Nothing to do with Clinton foundation. Donated to Dems and Reps.
 * [68% error rate report on Antrim, Michigan](https://apnews.com/article/fact-checking-afs:Content:9847904839):
   * Nonsense. Recount of Antrim gave 12 votes to Trump.
   * Trump campaign did *not* request hand recount of every ballot in the state (costs money). They could have.
+* [Did not flip votes in Ware County, Georgia](https://apnews.com/article/fact-checking-afs:Content:9773239691)
   
 ## Georgia
 
@@ -25,6 +29,7 @@
 * [Rate of signature rejection in 2020 consistent with 2018](https://www.snopes.com/fact-check/georgia-signature-audit/)
 * [Poll watchers were not kicked out](https://www.snopes.com/fact-check/poll-watchers-2020-election/)
 * [No dominion server in Germany](https://www.snopes.com/fact-check/dominion-servers-germany-seized/)
+* [Truck in GA parking lot not destroying election equipment](https://apnews.com/article/fact-checking-afs:Content:9787630934)
 
 ### Georgia Senate Hearing 12/30/20
 
