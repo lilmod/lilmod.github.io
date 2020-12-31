@@ -30,6 +30,9 @@
 * [Poll watchers were not kicked out](https://www.snopes.com/fact-check/poll-watchers-2020-election/)
 * [No dominion server in Germany](https://www.snopes.com/fact-check/dominion-servers-germany-seized/)
 * [Truck in GA parking lot not destroying election equipment](https://apnews.com/article/fact-checking-afs:Content:9787630934)
+* [Water main break was early on 11/3](https://www.usatoday.com/story/news/factcheck/2020/12/16/fact-check-claim-ga-vote-spike-biden-after-pipe-burst-false/3879081001/)
+  * 11/3 morning 6am: water burst, fixed after 2 hours
+  * 11/3 night: poll watchers from parties accidentally leave. SOS watchers stay 
 
 ### Georgia Senate Hearing 12/30/20
 
