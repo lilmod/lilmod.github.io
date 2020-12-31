@@ -35,6 +35,7 @@
 
 # טענות נגדו
 * [מלפני 22 שנה](https://twitter.com/sari_azoulay/status/1344715397531136000?s=20)
+* [הטענות של השמאל נגד ביבי אותו דבר שנים](https://youtu.be/2tdE49LJ3IE)
 
 # אהבה לספרים
 * [מסר לנוער בטיק טוק](https://youtu.be/JChrrPLWq98)
