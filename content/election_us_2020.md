@@ -49,6 +49,13 @@
 
 * [Not true that more votes than voters](https://apnews.com/article/fact-checking-afs:Content:9887147615)
 * [No proof of dead voters in PA](https://www.snopes.com/fact-check/20000-dead-voters-in-pennsylvania/)
+* [PA Supreme Court rules against observers not allowed <15 ft](https://www.nbcnews.com/politics/2020-election/pennsylvania-supreme-court-rejects-trump-campaign-claim-problems-ballot-observers-n1248046)
+* [PA had many observers](https://www.politifact.com/factchecks/2020/nov/06/ted-cruz/ted-cruz-falsely-claims-philadelphia-counting-vote/)
+* [Seems like PA complied with first court order](https://www.inquirer.com/news/trump-fact-check-pennsylvania-ballot-philadelphia-president-20201105.html)
+
+## Michigan
+
+* [Detroit had access to observers](https://www.politifact.com/factchecks/2020/nov/06/facebook-posts/over-100-republican-challengers-monitored-absentee/)
 
 ## Lin Wood
 
