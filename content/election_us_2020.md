@@ -25,6 +25,8 @@
   
 ## Georgia
 
+* [Hand recount/audit in Georgia](https://www.washingtonpost.com/politics/2020/11/12/georgia-vote-audit-recount/)
+  * Have to do without machines, no adjudication used from earlier
 * [Signature audit in Georgia finds 99% correct results](https://thehill.com/homenews/campaign/532042-georgia-signature-audit-finds-no-fraud-in-presidential-election)
   * 2 mismatches out of 15,118 samples, wife signed her name for both hers and wife and husband
 * [Trump lies about GA SOS's brother](https://twitter.com/yotambarnoy/status/1344367757391872000?s=20)
