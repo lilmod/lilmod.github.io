@@ -25,6 +25,7 @@
   
 ## Georgia
 
+* [All votes were uploaded, 3% adjudicated](https://twitter.com/yotambarnoy/status/1346125016014852096?s=20)
 * [Hand recount/audit in Georgia](https://www.washingtonpost.com/politics/2020/11/12/georgia-vote-audit-recount/)
   * Have to do without machines, no adjudication used from earlier
 * [Signature audit in Georgia finds 99% correct results](https://thehill.com/homenews/campaign/532042-georgia-signature-audit-finds-no-fraud-in-presidential-election)
