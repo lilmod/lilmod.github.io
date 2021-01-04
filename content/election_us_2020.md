@@ -25,6 +25,7 @@
   
 ## Georgia
 
+* [Georgia corrections](https://twitter.com/AGHamilton29/status/1346201276846112774?s=20)
 * [All votes were uploaded, 3% adjudicated](https://twitter.com/yotambarnoy/status/1346125016014852096?s=20)
 * [Hand recount/audit in Georgia](https://www.washingtonpost.com/politics/2020/11/12/georgia-vote-audit-recount/)
   * Have to do without machines, no adjudication used from earlier
