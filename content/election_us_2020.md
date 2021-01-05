@@ -26,6 +26,7 @@
 ## Georgia
 
 * [Full video from State Farm Arena](https://www.youtube.com/watch?v=iwOlzoBpdwQ)
+  * [My version](https://twitter.com/yotambarnoy/status/1346275831841218561?s=20)
 * [Georgia corrections](https://twitter.com/AGHamilton29/status/1346201276846112774?s=20)
 * [All votes were uploaded, 3% adjudicated](https://twitter.com/yotambarnoy/status/1346125016014852096?s=20)
 * [Hand recount/audit in Georgia](https://www.washingtonpost.com/politics/2020/11/12/georgia-vote-audit-recount/)
