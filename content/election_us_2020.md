@@ -8,6 +8,7 @@
 * [Watermark sting operation conspiracy](https://www.snopes.com/fact-check/dhs-watermark-sting/)
 * [Video of frustrated poll worker](https://www.snopes.com/fact-check/atlanta-georgia-voter-fraud-video/)
 * [More votes than eligible voters, "simple math"](https://www.factcheck.org/2020/12/flawed-calculation-behind-false-claim-of-fraudulent-votes/)
+* [Debunking of constitutional issue with changed laws](https://twitter.com/DavidAFrench/status/1345529353845800962?s=20)
 
 ## Mail-in Ballots
 
