@@ -85,3 +85,6 @@
 
 ## Supreme Court
 * [No shouting match in Supreme Court. Snopes.](https://www.snopes.com/fact-check/supreme-court-erupt-shouting-match/)
+
+## Electoral College
+* [Mitch McConnel on the election](https://twitter.com/monacharen/status/1346895177017937920?s=20)
