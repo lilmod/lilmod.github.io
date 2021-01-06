@@ -85,6 +85,7 @@
 
 ## Supreme Court
 * [No shouting match in Supreme Court. Snopes.](https://www.snopes.com/fact-check/supreme-court-erupt-shouting-match/)
+* [John Roberts not with Epstein](https://twitter.com/yotambarnoy/status/1346908536790347783?s=20)
 
 ## Electoral College
 * [Mitch McConnel on the election](https://twitter.com/monacharen/status/1346895177017937920?s=20)
