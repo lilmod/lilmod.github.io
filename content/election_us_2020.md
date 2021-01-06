@@ -47,6 +47,7 @@
 * [Water main break was early on 11/3](https://www.usatoday.com/story/news/factcheck/2020/12/16/fact-check-claim-ga-vote-spike-biden-after-pipe-burst-false/3879081001/)
   * 11/3 morning 6am: water burst, fixed after 2 hours
   * 11/3 night: poll watchers from parties accidentally leave. SOS watchers stay 
+* [Trump threatened Georgia Secretary of State](https://frenchpress.thedispatch.com/p/futility-cannot-excuse-malice)
 
 ### Georgia Senate Hearing 12/30/20
 
