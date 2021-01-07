@@ -16,7 +16,7 @@
 * Not Antifa
 [1](https://twitter.com/oneunderscore__/status/1346950118835064836?s=20)
 [2](https://twitter.com/yotambarnoy/status/1347012934292152320?s=20)
-[3](https://twitter.com/yotambarnoy/status/1347012863081197569?s=20)
+[3](https://twitter.com/oneunderscore__/status/1346950118835064836)
 ## Mail-in Ballots
 
 * [Only sent to all registered voters in some states](https://www.snopes.com/fact-check/millions-mail-in-ballots/)
