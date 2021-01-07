@@ -10,7 +10,13 @@
 * [More votes than eligible voters, "simple math"](https://www.factcheck.org/2020/12/flawed-calculation-behind-false-claim-of-fraudulent-votes/)
 * [Debunking of constitutional issue with changed laws](https://twitter.com/DavidAFrench/status/1345529353845800962?s=20)
 * [Man charged voter fraud for mother Trump](https://www.newsweek.com/man-charged-voting-dead-mother-trump-3rd-case-voter-fraud-pennsylvania-1556553)
+* [Isaac Saul megathread](https://twitter.com/Ike_Saul/status/1324435797374808066?s=20)
 
+## 6/1/01
+* Not Antifa
+[1](https://twitter.com/oneunderscore__/status/1346950118835064836?s=20)
+[2](https://twitter.com/yotambarnoy/status/1347012934292152320?s=20)
+[3](https://twitter.com/yotambarnoy/status/1347012863081197569?s=20)
 ## Mail-in Ballots
 
 * [Only sent to all registered voters in some states](https://www.snopes.com/fact-check/millions-mail-in-ballots/)
