@@ -15,7 +15,7 @@
 ## 6/1/01
 * Not Antifa
 [1](https://twitter.com/oneunderscore__/status/1346950118835064836?s=20)
-[2](https://twitter.com/yotambarnoy/status/1347012934292152320?s=20)
+[2](https://twitter.com/thealexvanness/status/1347006355895447554)
 [3](https://twitter.com/oneunderscore__/status/1346950118835064836)
 ## Mail-in Ballots
 
