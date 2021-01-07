@@ -19,6 +19,7 @@
 [3](https://twitter.com/oneunderscore__/status/1346950118835064836)
 [4](https://twitter.com/Jewtastic/status/1347054138446671872?s=20)
 [5](https://twitter.com/RJBrodsky/status/1347048779791396868?s=20)
+[6](https://twitter.com/prchovanec/status/1347054718162501634?s=20)
 
 ## Mail-in Ballots
 
