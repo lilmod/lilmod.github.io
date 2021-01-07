@@ -17,6 +17,8 @@
 [1](https://twitter.com/oneunderscore__/status/1346950118835064836?s=20)
 [2](https://twitter.com/thealexvanness/status/1347006355895447554)
 [3](https://twitter.com/oneunderscore__/status/1346950118835064836)
+[4](https://twitter.com/Jewtastic/status/1347054138446671872?s=20)
+
 ## Mail-in Ballots
 
 * [Only sent to all registered voters in some states](https://www.snopes.com/fact-check/millions-mail-in-ballots/)
