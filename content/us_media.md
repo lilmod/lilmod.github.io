@@ -18,58 +18,45 @@
 
 אני מעדכן את הדף הזה עם הזמן.
 
-* [CNN][CNN], [MSNBC]:
+* [CNN](www.cnn.com), [MSNBC](www.msnbc.com):
  נטייה שמאלנית בינונית עד חזקה, אבל אמינים בדיווח עובדות.
 כרגיל מדור הדעות לא אמין.
 מדור החדשות אמין אך סלקיטבי, יתכן שישמטו עובדות שתומכות בימין או יציגו את העובדות בצורה מעוותת.
 
-* [FOX]:
+* [FOX](www.foxnews.com):
 נטייה ימנית חזקה מאוד.
 מדור עתונאי אמין אבל סלקטיבי, מדור דעות *מאוד* לא אמין.
 
-* [New York Times]:
+* [New York Times](www.nytimes.com):
 העתון הכי נחשב בארה"ב.
 לצערנו יש לו נטייה שמאלנית שהולכת ונהיית יותר רדיקלית.
 מבחינת דיווח עובדות, עדיין מאוד אמין אבל גם מאוד סלקטיבי.
 מדור דעות לא אמין באופן כללי,
 אבל תלוי בהוגה הדעה
 
-* [Wall Street Journal][wsj]:
+* [Wall Street Journal](www.wsj.com):
 העתון הימני הכי משפיע.
 מדור עתונאי אמין מאוד, מדור דעות לא אמין במיוחד.
 
-* [NY Post][nypost]:
+* [NY Post](www.nypost.com):
 עתון די "צהוב" עם נטייה ימנית . אמינות בינונית.
 
-* [Washington Examiner][washex]
+* [Washington Examiner](www.washingtonexaminer.com):
 עתון ימני קיצוני. רמת אמינות סבירה אך לא גבוהה במיוחד - עדיף למצוא מקור אחר תומך.
 
-* [Commentary Magazine][commentary]:
+* [Commentary Magazine](www.commentarymagazine.com):
 מגזין דעות ימני יהודי מעולה. רמת אמינות גבוהה
 
-* [Atlantic Magazine][atlantic]:
+* [Atlantic Magazine](www.theatlantic.com):
 מגזין דעות/חדשות מאוד איכותי עם נטייה שמאלנית באופן כללי, אבל יש להם גם הוגי דעות מהימין.
 רמת אמינות סבירה (לרוב).
 
-* [Tangle][tangle]:
+* [Tangle](tangle.substack.com):
 מגזין חדשות של איש 
 אחד, אבל מאוד מאוזן. מומלץ.
 
-* [Newsmax][newsmax], [OANN][oann]:
+* [Newsmax](www.newsmax.com), [OANN](www.oann.com):
 רמת אמינות אפס. מפיצים שקרים בלי בושה.
 
 * מישהו ביוטוב או איזשהו ישראלי שגר בארה"ב:
 כמובן, רמת אמינות שתלויה במקור. לא להאמין סתם.
-
-[CNN]: www.cnn.com
-[MSNBC]: www.msnbc.com
-[FOX]: www.foxnews.com
-[New York Times]: www.nytimes.com
-[wsj]: www.wsj.com
-[nypost]: www.nypost.com
-[washex]: www.washingtonexaminer.com
-[commentary]: www.commentarymagazine.com
-[atlantic]: www.theatlantic.com
-[newsmax]: www.newsmax.com
-[oann]: www.oann.com
-[tangle]: tangle.substack.com
