@@ -18,41 +18,58 @@
 
 אני מעדכן את הדף הזה עם הזמן.
 
-* CNN, MSNBC:
+* [CNN][cnn], [MSNBC][msnbc]:
  נטייה שמאלנית בינונית עד חזקה, אבל אמינים בדיווח עובדות.
 כרגיל מדור הדעות לא אמין.
 מדור החדשות אמין אך סלקיטבי, יתכן שישמטו עובדות שתומכות בימין או יציגו את העובדות בצורה מעוותת.
 
-* FOX:
+* [FOX][fox]:
 נטייה ימנית חזקה מאוד.
 מדור עתונאי אמין אבל סלקטיבי, מדור דעות *מאוד* לא אמין.
 
-* New York Times:
+* [New York Times][nytimes]:
 העתון הכי נחשב בארה"ב.
 לצערנו יש לו נטייה שמאלנית שהולכת ונהיית יותר רדיקלית.
 מבחינת דיווח עובדות, עדיין מאוד אמין אבל גם מאוד סלקטיבי.
 מדור דעות לא אמין באופן כללי,
 אבל תלוי בהוגה הדעה
 
-* Wall Street Journal:
+* [Wall Street Journal][wsj]:
 העתון הימני הכי משפיע.
 מדור עתונאי אמין מאוד, מדור דעות לא אמין במיוחד.
 
-* NY Post:
+* [NY Post][nypost]:
 עתון די "צהוב" עם נטייה ימנית . אמינות בינונית.
 
-* Washington Examiner
+* [Washington Examiner][washex]
 עתון ימני קיצוני. רמת אמינות סבירה אך לא גבוהה במיוחד - עדיף למצוא מקור אחר תומך.
 
-* Commentary Magazine:
+* [Commentary Magazine][commentary]:
 מגזין דעות ימני יהודי מעולה. רמת אמינות גבוהה
 
-* Atlantic Magazine:
-מגזין דעות מאוד איכותי עם נטייה שמאלנית באופן כללי, אבל יש להם גם הוגי דעות מהימין.
-רמת אמינות סבירה אך עדיין מדובר בדעות ולא בדיווח עובדות (לרוב).
+* [Atlantic Magazine][atlantic]:
+מגזין דעות/חדשות מאוד איכותי עם נטייה שמאלנית באופן כללי, אבל יש להם גם הוגי דעות מהימין.
+רמת אמינות סבירה (לרוב).
 
-* Newsmax, OAN:
+* [Tangle][tangle]:
+מגזין חדשות של איש 
+אחד, אבל מאוד מאוזן. מומלץ.
+
+* [Newsmax][newsmax], [OANN][oann]:
 רמת אמינות אפס. מפיצים שקרים בלי בושה.
 
 * מישהו ביוטוב או איזשהו ישראלי שגר בארה"ב:
 כמובן, רמת אמינות שתלויה במקור. לא להאמין סתם.
+
+[CNN]: www.cnn.com
+[MSNBC]: www.msnbc.com
+[FOX]: www.foxnews.com
+[nytimes]: www.nytimes.com
+[wsj]: www.wsj.com
+[nypost]: www.nypost.com
+[washex]: www.washingtonexaminer.com
+[commentary]: www.commentarymagazine.com
+[atlantic]: www.theatlantic.com
+[newsmax]: www.newsmax.com
+[oann]: www.oann.com
+[tangle]: tangle.substack.com
