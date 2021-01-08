@@ -24,4 +24,5 @@
 * [התקשורת](content/the_media.md)
 * [נושאים אחרים](content/other.md)
 
+* [המדריך הימני לתקשורת האמריקאית](content/us_media.md)
 </div>
