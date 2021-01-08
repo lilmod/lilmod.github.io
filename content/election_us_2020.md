@@ -27,6 +27,7 @@
 * [woman shot was nuts](https://twitter.com/OrenKessler/status/1347178237231853568?s=20)
 * [looked to hang Pence](https://twitter.com/yotambarnoy/status/1347586721043648512?s=20)
 * [Trump fans: who do we kill?](https://twitter.com/yotambarnoy/status/1347594921671352321?s=20)
+* [US Justice dept: no Antifa](https://twitter.com/DavidAFrench/status/1347625744608989202?s=20)
 
 ## Mail-in Ballots
 
