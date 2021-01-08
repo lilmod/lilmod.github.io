@@ -12,6 +12,7 @@
 * [Man charged voter fraud for mother Trump](https://www.newsweek.com/man-charged-voting-dead-mother-trump-3rd-case-voter-fraud-pennsylvania-1556553)
 * [Isaac Saul megathread](https://twitter.com/Ike_Saul/status/1324435797374808066?s=20)
 * [Trump's lawyer in PA resigns after 6-1](https://twitter.com/Elaijuh/status/1347205394393927697?s=20)
+* [Trump's internal data matched results](https://twitter.com/yotambarnoy/status/1347578467341185024)
 
 ## 6/1/01
 * Not Antifa
