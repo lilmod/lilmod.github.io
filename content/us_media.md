@@ -18,44 +18,48 @@
 
 אני מעדכן את הדף הזה עם הזמן.
 
-* [CNN](https://www.cnn.com), [MSNBC](www.msnbc.com):
+* [CNN](https://www.cnn.com), [MSNBC](https://www.msnbc.com):
  נטייה שמאלנית בינונית עד חזקה, אבל אמינים בדיווח עובדות.
 כרגיל מדור הדעות לא אמין.
 מדור החדשות אמין אך סלקיטבי, יתכן שישמטו עובדות שתומכות בימין או יציגו את העובדות בצורה מעוותת.
 
-* [FOX](www.foxnews.com):
+* [FOX](https://www.foxnews.com):
 נטייה ימנית חזקה מאוד.
 מדור עתונאי אמין אבל סלקטיבי, מדור דעות *מאוד* לא אמין.
 
-* [New York Times](www.nytimes.com):
+* [New York Times](https://www.nytimes.com):
 העתון הכי נחשב בארה"ב.
 לצערנו יש לו נטייה שמאלנית שהולכת ונהיית יותר רדיקלית.
 מבחינת דיווח עובדות, עדיין מאוד אמין אבל גם מאוד סלקטיבי.
 מדור דעות לא אמין באופן כללי,
 אבל תלוי בהוגה הדעה
 
-* [Wall Street Journal](www.wsj.com):
+* [Wall Street Journal](https://www.wsj.com):
 העתון הימני הכי משפיע.
 מדור עתונאי אמין מאוד, מדור דעות לא אמין במיוחד.
 
-* [NY Post](www.nypost.com):
+* [NY Post](https://www.nypost.com):
 עתון די "צהוב" עם נטייה ימנית . אמינות בינונית.
 
-* [Washington Examiner](www.washingtonexaminer.com):
+* [Washington Examiner](https://www.washingtonexaminer.com):
 עתון ימני קיצוני. רמת אמינות סבירה אך לא גבוהה במיוחד - עדיף למצוא מקור אחר תומך.
 
-* [Commentary Magazine](www.commentarymagazine.com):
+* [Commentary Magazine](https://www.commentarymagazine.com):
 מגזין דעות ימני יהודי מעולה. רמת אמינות גבוהה
 
-* [Atlantic Magazine](www.theatlantic.com):
+* [Atlantic Magazine](https://www.theatlantic.com):
 מגזין דעות/חדשות מאוד איכותי עם נטייה שמאלנית באופן כללי, אבל יש להם גם הוגי דעות מהימין.
 רמת אמינות סבירה (לרוב).
 
-* [Tangle](tangle.substack.com):
+* [National Review](https://www.nationalreview.com):
+מגזין דעות ימני.
+רמת אמינות בינונית עד גבוהה.
+
+* [Tangle](https://tangle.substack.com):
 מגזין חדשות של איש 
 אחד, אבל מאוד מאוזן. מומלץ.
 
-* [Newsmax](www.newsmax.com), [OANN](www.oann.com):
+* [Newsmax](https://www.newsmax.com), [OANN](https://www.oann.com):
 רמת אמינות אפס. מפיצים שקרים בלי בושה.
 
 * מישהו ביוטוב או איזשהו ישראלי שגר בארה"ב:
