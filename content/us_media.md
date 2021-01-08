@@ -18,16 +18,16 @@
 
 אני מעדכן את הדף הזה עם הזמן.
 
-* [CNN][cnn], [MSNBC][msnbc]:
+* [CNN], [MSNBC]:
  נטייה שמאלנית בינונית עד חזקה, אבל אמינים בדיווח עובדות.
 כרגיל מדור הדעות לא אמין.
 מדור החדשות אמין אך סלקיטבי, יתכן שישמטו עובדות שתומכות בימין או יציגו את העובדות בצורה מעוותת.
 
-* [FOX][fox]:
+* [FOX]:
 נטייה ימנית חזקה מאוד.
 מדור עתונאי אמין אבל סלקטיבי, מדור דעות *מאוד* לא אמין.
 
-* [New York Times][nytimes]:
+* [New York Times]:
 העתון הכי נחשב בארה"ב.
 לצערנו יש לו נטייה שמאלנית שהולכת ונהיית יותר רדיקלית.
 מבחינת דיווח עובדות, עדיין מאוד אמין אבל גם מאוד סלקטיבי.
@@ -64,7 +64,7 @@
 [CNN]: www.cnn.com
 [MSNBC]: www.msnbc.com
 [FOX]: www.foxnews.com
-[nytimes]: www.nytimes.com
+[New York Times]: www.nytimes.com
 [wsj]: www.wsj.com
 [nypost]: www.nypost.com
 [washex]: www.washingtonexaminer.com
