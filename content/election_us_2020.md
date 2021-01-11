@@ -15,6 +15,7 @@
 * [Trump's internal data matched results](https://twitter.com/yotambarnoy/status/1347578467341185024)
 * [Republicans were vs election security bills](https://twitter.com/yotambarnoy/status/1348656387048366082?s=20)
 * [Multiple investigations, including ones in Georgia case](https://www.usatoday.com/story/opinion/2020/11/13/trump-voter-fraud-claims-investigated-2020-election/6259980002/)
+* [Actual voter fraud findings](https://www.washingtonpost.com/politics/voter-fraud-investigations-2020/2020/12/22/bdbe541c-42de-11eb-b0e4-0f182923a025_story.html)
 
 ## 6/1/01
 * Not Antifa
