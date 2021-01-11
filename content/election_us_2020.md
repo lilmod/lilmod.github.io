@@ -102,6 +102,7 @@
 
 ## Cases
 * [Allege fraud in non-existent Michigan county](https://www.snopes.com/news/2020/12/01/sidney-powell-election-fraud/)
+* [NY Times: 12 of 60 cases checked evidence, 2/3 they didn't claim fraud](https://www.nytimes.com/2020/12/26/us/politics/republicans-voter-fraud.html)
 
 ## Supreme Court
 * [No shouting match in Supreme Court. Snopes.](https://www.snopes.com/fact-check/supreme-court-erupt-shouting-match/)
