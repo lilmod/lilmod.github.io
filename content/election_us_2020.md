@@ -14,6 +14,7 @@
 * [Trump's lawyer in PA resigns after 6-1](https://twitter.com/Elaijuh/status/1347205394393927697?s=20)
 * [Trump's internal data matched results](https://twitter.com/yotambarnoy/status/1347578467341185024)
 * [Republicans were vs election security bills](https://twitter.com/yotambarnoy/status/1348656387048366082?s=20)
+* [Multiple investigations, including ones in Georgia case](https://www.usatoday.com/story/opinion/2020/11/13/trump-voter-fraud-claims-investigated-2020-election/6259980002/)
 
 ## 6/1/01
 * Not Antifa
