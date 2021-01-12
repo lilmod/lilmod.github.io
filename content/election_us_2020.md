@@ -97,6 +97,10 @@
 
 * [Detroit had access to observers](https://www.politifact.com/factchecks/2020/nov/06/facebook-posts/over-100-republican-challengers-monitored-absentee/)
 
+## Nevada
+* [Why Nevada suit failed](https://thenevadaindependent.com/article/why-trumps-lawsuit-seeking-to-overturn-nevadas-presidential-race-sputtered-in-court):
+  * Couldn't even find one illegal vote.
+
 ## Lin Wood
 
 * [Is insane. Attacking John Roberts as a pedophile](https://twitter.com/stphnfwlr/status/1344668863137521670?s=20)
