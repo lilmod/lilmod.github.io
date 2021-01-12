@@ -69,6 +69,7 @@
   * 11/3 morning 6am: water burst, fixed after 2 hours
   * 11/3 night: poll watchers from parties accidentally leave. SOS watchers stay 
 * [Trump threatened Georgia Secretary of State](https://frenchpress.thedispatch.com/p/futility-cannot-excuse-malice)
+* [Trump caused Attorney General to quit. New one can't find fraud either](https://twitter.com/yotambarnoy/status/1349074051092914179?s=20)
 
 ### Georgia Senate Hearing 12/30/20
 
