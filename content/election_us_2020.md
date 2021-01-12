@@ -18,6 +18,7 @@
 * [Actual voter fraud findings](https://www.washingtonpost.com/politics/voter-fraud-investigations-2020/2020/12/22/bdbe541c-42de-11eb-b0e4-0f182923a025_story.html)
 
 ## 6/1/01
+* Parler users. [Proof](https://twitter.com/yotambarnoy/status/1349083944894029826?s=20)
 * Not Antifa
 [1](https://twitter.com/oneunderscore__/status/1346950118835064836?s=20)
 [2](https://twitter.com/thealexvanness/status/1347006355895447554)
