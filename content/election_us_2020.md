@@ -108,8 +108,12 @@
 * [Is insane. Attacking John Roberts as a pedophile](https://twitter.com/stphnfwlr/status/1344668863137521670?s=20)
 
 ## Cases
+* [Courts looked at the evidence](https://twitter.com/JonathanTCasey/status/1342303141975515136?s=20)
 * [Allege fraud in non-existent Michigan county](https://www.snopes.com/news/2020/12/01/sidney-powell-election-fraud/)
 * [NY Times: 12 of 60 cases checked evidence, 2/3 they didn't claim fraud](https://www.nytimes.com/2020/12/26/us/politics/republicans-voter-fraud.html)
+* [Why Nevada suit failed](https://thenevadaindependent.com/article/why-trumps-lawsuit-seeking-to-overturn-nevadas-presidential-race-sputtered-in-court):
+  * Couldn't even find one illegal vote.
+* [States didn't violate laws](https://twitter.com/JonathanTCasey/status/1342845773965365250?s=20)
 
 ## Supreme Court
 * [No shouting match in Supreme Court. Snopes.](https://www.snopes.com/fact-check/supreme-court-erupt-shouting-match/)
