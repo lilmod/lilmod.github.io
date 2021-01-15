@@ -6,6 +6,9 @@
 * [Senators caught saying he's crazy](https://www.youtube.com/watch?v=YK7BdHmVj18)
 * [Very Stable Genius](https://www.nytimes.com/2018/01/06/us/politics/trump-genius-mental-health.html)
 * [Scarborough: Rs say he's unstable behind cameras](https://observer.com/2017/12/morning-joe-host-republicans-call-trump-unstable-watch-video/)
+* [Trump University Last Week Tonight](https://www.youtube.com/watch?v=cBUeipXFisQ)
+* [CNN on Trump University](https://www.youtube.com/watch?v=mBKfG2GemX0&t=1s)
+
 
 ## Everything but the Kitchen Sink
 
