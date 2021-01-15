@@ -33,6 +33,7 @@
 * [Trump fans: who do we kill?](https://twitter.com/yotambarnoy/status/1347594921671352321?s=20)
 * [US Justice dept: no Antifa](https://twitter.com/DavidAFrench/status/1347625744608989202?s=20)
 * [John Sullivan, crazy nutcase](https://www.rollingstone.com/culture/culture-features/ashli-babbitt-shooting-video-jayden-x-maga-riot-interview-1112949/)
+* [Long beard Camp Auschwitz man](https://twitter.com/Manny_Alicandro/status/1349959786851426310?s=20)
 
 ## Mail-in Ballots
 
