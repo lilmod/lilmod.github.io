@@ -1,5 +1,12 @@
 # US Election 2020
 
+## Donald Trump Insane
+* [Cruz on Trump](https://www.youtube.com/watch?v=sNRJJsjGdv0)
+* [Small hands](https://www.youtube.com/watch?v=Ve6I92hEozo)
+* [Senators caught saying he's crazy](https://www.youtube.com/watch?v=YK7BdHmVj18)
+* [Very Stable Genius](https://www.nytimes.com/2018/01/06/us/politics/trump-genius-mental-health.html)
+* [Scarborough: Rs say he's unstable behind cameras](https://observer.com/2017/12/morning-joe-host-republicans-call-trump-unstable-watch-video/)
+
 ## Everything but the Kitchen Sink
 
 * [The theory that's needed](https://twitter.com/yotambarnoy/status/1344744502112768001?s=20)
