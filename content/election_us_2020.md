@@ -1,5 +1,10 @@
 # US Election 2020
 
+## Hunter Biden
+* [Johnson-Grassley report](https://www.hsgac.senate.gov/media/majority-media/johnson-grassley-release-report-on-conflicts-of-interest-investigation)
+* [Johnson-Grassley report analysis](https://www.lawfareblog.com/what-make-johnson-grassley-report-biden-and-burisma)
+
+
 ## Donald Trump Insane
 * [Cruz on Trump](https://www.youtube.com/watch?v=sNRJJsjGdv0)
 * [Small hands](https://www.youtube.com/watch?v=Ve6I92hEozo)
