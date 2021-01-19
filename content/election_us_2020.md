@@ -65,6 +65,12 @@
   * Nonsense. Recount of Antrim gave 12 votes to Trump.
   * Trump campaign did *not* request hand recount of every ballot in the state (costs money). They could have.
 * [Did not flip votes in Ware County, Georgia](https://apnews.com/article/fact-checking-afs:Content:9773239691)
+* [Giuliani spouts insane theory](https://twitter.com/harnevo/status/1351037570713575427?s=20)
+* [Powell makes crazy claims](https://twitter.com/harnevo/status/1351037571695042560?s=20)
+* [Trump echoes crazy claims](https://twitter.com/harnevo/status/1351037574865956866?s=20)
+* [Dominion workers hide](https://twitter.com/harnevo/status/1351037586945536001?s=20)
+* [Newsmax apologizes](https://twitter.com/harnevo/status/1351037589315334146?s=20)
+* [American Thinker (think tank) apologizes](https://twitter.com/harnevo/status/1351037592909864960?s=20)
   
 ## Georgia
 
