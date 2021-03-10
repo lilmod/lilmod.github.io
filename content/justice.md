@@ -4,6 +4,7 @@
 
 * [ראש מפלג חקירות בדימוס: המשטרה והפרקליטות רוצות להפיל את שלטון הימין](https://mida.org.il/2017/08/08/%D7%A8%D7%90%D7%A9-%D7%9E%D7%A4%D7%9C%D7%92-%D7%97%D7%A7%D7%99%D7%A8%D7%95%D7%AA-%D7%91%D7%93%D7%99%D7%9E%D7%95%D7%A1-%D7%94%D7%9E%D7%A9%D7%98%D7%A8%D7%94-%D7%95%D7%94%D7%A4%D7%A8%D7%A7%D7%9C%D7%99/?fbclid=IwAR0lSK2aGMn4-rm-qxtLkeBO4MI7m_BZQGj2WFM4mmiNO_2KXti0eTFGbxQ)
 * [מאמר מעולה על השתלטות בג"ץ על הדמוקרטיה](https://dyoma.co.il/%D7%97%D7%95%D7%A7-%D7%95%D7%9E%D7%A9%D7%A4%D7%98/587-%D7%A6%D7%A4%D7%A8%D7%93%D7%A2-%D7%91%D7%9E%D7%99%D7%9D-%D7%A8%D7%95%D7%AA%D7%97%D7%99%D7%9D-%E2%80%93-%D7%A2%D7%9C-%D7%94%D7%94%D7%A4%D7%99%D7%9B%D7%94-%D7%94%D7%9E%D7%A9%D7%98%D7%A8%D7%99%D7%AA-%D7%94%D7%90%D7%99%D7%98%D7%99%D7%AA-%D7%A9%D7%9E%D7%97%D7%95%D7%9C%D7%9C-%D7%91%D7%99%D7%AA-%D7%94%D7%9E%D7%A9%D7%A4%D7%98-%D7%94%D7%A2%D7%9C%D7%99%D7%95%D7%9F-%D7%A0%D7%92%D7%93-%D7%94%D7%93%D7%9E%D7%95%D7%A7%D7%A8%D7%98%D7%99%D7%94-%D7%94%D7%99%D7%A9%D7%A8%D7%90%D7%9C%D7%99%D7%AA)
+* [חזק מאוד. קפה שפירא: תיקים תפורים ובעית מערכת המשפט](https://www.youtube.com/watch?v=DndV910Omfs)
 * [אורנה בן דור. חשוב מאוד!](https://www.youtube.com/watch?time_continue=27&v=mBq89GBHs5g&feature=emb_logo)
 * [דיון מעולה על מערכת המשפט ואיך לתקנה. חובה](https://www.facebook.com/tzir60/videos/2584201028572385/)
 * [העליון מערכת סגורה. הפרקליטות מקולקלת](https://www.zman.co.il/76890/)
