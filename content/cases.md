@@ -9,6 +9,7 @@
 * [אבי וייס מנתח את פרטי התיקים. חזק](https://www.facebook.com/avi.weissmsc/posts/10158317800125312)
 * [תזמונים מוזרים, תיקים על הנשמה מלאכותית. חזק](https://youtu.be/470-kKinrtE)
 * [סיגרים מול 100,000 ש"ח פנסיה](https://twitter.com/DdongISR/status/1227841651747557376?s=20)
+* [מנדלבליט אומר לאפי נווה שנסחט](https://www.youtube.com/watch?v=jE6RT4hX5R4&list=PLn9VWDc3o2MHuj9r9Va-EMMXiyplWG-fS&index=53)
 
 ## תיק 4000
 
