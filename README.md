@@ -11,18 +11,14 @@
 ## נושאים
 
 * [בנימין נתניהו](content/bibi.md)
-* [כלכלת ישראל ומתווה הגז](content/economy.md)
-* [תכנית המאה וריבונות](content/deal_100.md)
+* [קורונה וחיסונים](content/health.md)
+* [שלום עם העולם הערבי](content/arab_world.md)
 * [ביטחון, איראן, אובמה](content/security.md)
-* [יחסים עם העולם הערבי](content/arab_world.md)
-* [התיקים וכתב האישום](content/cases.md)
-* [בני גנץ](content/gantz.md)
-* [כחול לבן](content/blue_white.md)
+* [כלכלת ישראל ומתווה הגז](content/economy.md)
 * [הפרקליטות ומערכת המשפט](content/justice.md)
-* [מערכת הבריאות](content/health.md)
-* [ליברמן](content/liberman.md)
+* [התיקים וכתב האישום](content/cases.md)
 * [התקשורת](content/the_media.md)
+* [סער](content/opponents.md)
 * [נושאים אחרים](content/other.md)
-
 * [המדריך הימני לתקשורת האמריקאית](content/us_media.md)
 </div>
