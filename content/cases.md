@@ -2,6 +2,7 @@
 
 # התיקים וכתב האישום
 
+* [הקדמה. לא כל דבר מפתיע זה קונספירציה](https://twitter.com/yotambarnoy/status/1369718460368977924?s=20)
 * [תובע פדרלי מנתח את התיקים נגד ביבי. חזק מאוד](https://www.youtube.com/watch?v=ZTxYRhrR8No)
 * [חזק מאוד. דיון מקיף בקפה שפירא על תפירת התיקים](https://www.youtube.com/watch?v=DndV910Omfs)
 * [הצעת החנינה אם ביבי יפרוש](https://www.facebook.com/permalink.php?story_fbid=2219486451684550&id=100008696496760)
