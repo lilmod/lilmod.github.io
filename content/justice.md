@@ -19,6 +19,7 @@
 
 * [מנדלבליט מושחת חלק א](https://youtu.be/kQnDJiuEcIk) [חלק ב](https://youtu.be/2L1p1WqdYwE)
 * [מנדלבליט מסתיר את חלקו בפרשת הרפז](https://www.facebook.com/permalink.php?story_fbid=2237202836579578&id=100008696496760)
+* [מנדלבליט מודה שהוא מוחזק בגרון ע"י שי ניצן](https://www.youtube.com/watch?v=jE6RT4hX5R4&list=PLn9VWDc3o2MHuj9r9Va-EMMXiyplWG-fS&index=53)
 * [פרשת הרפז וצו איסור פירסום](https://www.facebook.com/TalOr314/posts/2354275401550425)
 * [מידע רב על מנדלבליט ואשכנזי](https://www.youtube.com/watch?v=Xj2f30iijg4&feature=youtu.be)
 * [מטורף! ועדת  המינוי לא רצתה לעבוד קשה ולבדוק את חלקו של מנדלבליט בפרשת הרפז, אז פשוט אישרה אותו](https://imgur.com/Lu1Ge6K)
