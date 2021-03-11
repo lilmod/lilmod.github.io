@@ -3,7 +3,7 @@
 # קורונה, חיסונים, מערכת הבריאות
 
 ## הקורונה
-* [מנכ"ל פייזר מסביר איך ישראל קבלה את החיסונים ראשונה](https://www.facebook.com/yotam.barnoy/posts/10158624692434845))
+* [מנכ"ל פייזר מסביר איך ישראל קבלה את החיסונים ראשונה](https://www.facebook.com/yotam.barnoy/posts/10158624692434845)
 * [ישראל הראשונה שתצא מהקורונה](https://twitter.com/netanyahu/status/1369699761687760901?s=20)
 * [רמת חיסונים בישראל](https://twitter.com/netanelgla/status/1369772020213424139?s=20)
 * [נתניהו מעודד את ערביי ישראל להתחסן](https://twitter.com/IsraeliPM_heb/status/1344681262062182401?s=20)
