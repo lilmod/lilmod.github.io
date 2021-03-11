@@ -4,6 +4,7 @@
 
 ## הקורונה
 * [מנכ"ל פייזר מסביר איך ישראל קבלה את החיסונים ראשונה](https://www.facebook.com/yotam.barnoy/posts/10158624692434845)
+* [מי יצלצל ב3 לפנות בוקר](https://twitter.com/nachi_z9/status/1370108742377832448?s=20)
 * [ישראל הראשונה שתצא מהקורונה](https://twitter.com/netanyahu/status/1369699761687760901?s=20)
 * [ראש ממשלת הונגריה על הובלת ישראל בקורונה](https://twitter.com/netanyahu/status/1370092780035440645?s=20)
 * [רמת חיסונים בישראל](https://twitter.com/netanelgla/status/1369772020213424139?s=20)
