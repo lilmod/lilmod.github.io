@@ -4,6 +4,7 @@
 
 ברוכים הבאים לאתר
 
+* [פודקאסט חובה! שי גולדן וביבי בשיחה](https://www.youtube.com/watch?v=_bJy9XLzXvM)
 * [השוואת נתונים בעשור האחרון](https://imgur.com/PcMt3Br)
 * [מה יש להם? חזק](https://youtu.be/DGaEOUj5F3U)
 * [שחמט](https://youtu.be/YJkcn2fKslg)
