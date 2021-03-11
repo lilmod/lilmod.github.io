@@ -2,9 +2,7 @@
 
 # בנימין נתניהו
 
-* [חזק מאוד -- תכנית המאה](https://youtu.be/XM_pY-_0cxA)
-* [איך רואים מנהיגים אמריקאים את ביבי מול גנץ. חובה](https://twitter.com/MiriBarbi/status/1223620835153514496?s=20)
-* [איך רואים מנהיגים אמריקאים את ביבי מול גנץ-חלק ב. חובה](https://twitter.com/MiriBarbi/status/1223621025105137664?s=20)
+* [פודקאסט מעולה עם ביבי. חובה](https://www.youtube.com/watch?v=_bJy9XLzXvM)
 * [אימן עודה מדבר על הישגיו של ביבי. חזק](https://www.youtube.com/watch?v=fa5-jmHtBCM)
 * [ראש ממשלת קנדה לשעבר מדבר על נתניהו](https://twitter.com/Lidar_Yarin/status/1220808197730074626?s=20)
 * [פסל שעווה של ביבי הוקם ליד טראמפ ופוטין, ראשי מעצמות העולם](https://twitter.com/mohsaud08/status/1221805017172271104?s=20)
