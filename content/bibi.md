@@ -25,12 +25,13 @@
 * [למנהיג של הודו, מודי, יש קשר חזק עם ביבי](https://twitter.com/yankihebrew/status/1228332209582551046?s=20)
 * [ראיון חזק של ביבי עם בועז גולן](https://www.youtube.com/watch?v=oGVeJwyAeec)
 * [מה שביבי אומר ההישג הכי גדול שלו](https://youtu.be/oGVeJwyAeec?t=1362)
+* [ישראל הפריפרית צריכה את נתניהו יותר משהוא צריך אותה](https://www.maariv.co.il/journalists/opinions/Article-827114)
 * [איך ביבי מנע אסון גדול על ישראל בעזרת יחסיו עם פוטין](https://youtu.be/oGVeJwyAeec?t=1897)
 * [מה יש להם?](https://youtu.be/DGaEOUj5F3U)
 * [ראיון מאוד מעניין עם יאיר נתניהו](https://youtu.be/Dum0DRMYiZU)
 * [ביבי על דברים שהיו קשים להשגה](https://twitter.com/c_shlomit/status/1224799923364880386?s=20)
 * [אפילו אברמוביץ משבח את ביבי](https://youtu.be/Re1w7-A2CLc)
-* [ביבי בגיל 28 - תשוו לגנץ](https://www.youtube.com/watch?v=YQx3XMkiVbg)
+* [ביבי בגיל 28](https://www.youtube.com/watch?v=YQx3XMkiVbg)
 
 # טענות נגדו
 * [מלפני 22 שנה](https://twitter.com/sari_azoulay/status/1344715397531136000?s=20)
