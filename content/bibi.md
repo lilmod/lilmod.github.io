@@ -34,6 +34,7 @@
 * [ביבי בגיל 28](https://www.youtube.com/watch?v=YQx3XMkiVbg)
 
 # טענות נגדו
+* [מי מאחד ומי מפלג - מעניין](https://twitter.com/LMalenboim/status/1369212483802693636?s=20)
 * [מלפני 22 שנה](https://twitter.com/sari_azoulay/status/1344715397531136000?s=20)
 * [הטענות של השמאל נגד ביבי אותו דבר שנים](https://youtu.be/2tdE49LJ3IE)
 
