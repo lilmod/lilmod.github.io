@@ -19,7 +19,7 @@
 * [הפרקליטות ומערכת המשפט](content/justice.md)
 * [התיקים וכתב האישום](content/cases.md)
 * [התקשורת](content/the_media.md)
-* [סער](content/opponents.md)
+* [לפיד, בנט, סער](content/opponents.md)
 * [נושאים אחרים](content/other.md)
 * [המדריך הימני לתקשורת האמריקאית](content/us_media.md)
 </div>
