@@ -32,4 +32,7 @@
 * [חזק מאוד](https://twitter.com/nisimshery/status/1161600580999110656?s=20)
 * למזלנו, הנשיא הבא, טראמפ, הינו הנשיא הכי פרו-ישראלי שהיה אי פעם.
 
+# עזה
+* [איך נתניהו טיפל בעזה](https://www.facebook.com/moshik.kovarsky/posts/3917759394913733)
+
 </div>
