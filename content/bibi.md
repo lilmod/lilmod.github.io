@@ -32,6 +32,7 @@
 * [ביבי על דברים שהיו קשים להשגה](https://twitter.com/c_shlomit/status/1224799923364880386?s=20)
 * [אפילו אברמוביץ משבח את ביבי](https://youtu.be/Re1w7-A2CLc)
 * [ביבי בגיל 28](https://www.youtube.com/watch?v=YQx3XMkiVbg)
+* [עזב את אוניברסיטת אמ-אי-טי ב73 לבוא להילחם](https://twitter.com/ShmuelShvili/status/1371187560190521355?s=20)
 
 # טענות נגדו
 * [מי מאחד ומי מפלג - מעניין](https://twitter.com/LMalenboim/status/1369212483802693636?s=20)
