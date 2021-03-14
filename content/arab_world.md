@@ -11,6 +11,7 @@
 
 # המגזר הערבי
 
+* [הבדואים תומכים בליכוד](https://www.facebook.com/permalink.php?story_fbid=3804685229612735&id=1105781849503100)
 * [מסר ממוחמד סעוד לערביי ישראל](https://twitter.com/mohsaud08/status/1228100405982162944?s=20)
 * [מתחילים להבין שרק הליכוד באמת דואג](https://www.facebook.com/groups/173336523277857/permalink/539732383304934/)
 * [מרצה ערבי: מי שלא מצביע לימין גורם לשפיכת דמים](https://twitter.com/ayeletsl/status/1224419208563449857?s=20)
