@@ -9,6 +9,7 @@
 * [פרופ' עידית מטות על החיסונים](https://youtu.be/QYC-UbLzSEY)
 * [ראש ממשלת הונגריה על הובלת ישראל בקורונה](https://twitter.com/netanyahu/status/1370092780035440645?s=20)
 * [רמת חיסונים בישראל](https://twitter.com/netanelgla/status/1369772020213424139?s=20)
+* [רמת הקורונה בישראל: סטטיסטיקה](https://www.facebook.com/moshik.kovarsky/posts/3926216854067987)
 * [נתניהו מעודד את ערביי ישראל להתחסן](https://twitter.com/IsraeliPM_heb/status/1344681262062182401?s=20)
 
 ## כללי
