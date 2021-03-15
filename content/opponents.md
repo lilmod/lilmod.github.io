@@ -11,3 +11,6 @@
 ## סער
 * [איש מלא כריזמה](https://twitter.com/yoavweintraub/status/1370061024179728388)
 * [שאשא ביטון, מספר 2 במפלגה](https://twitter.com/BB_WE_Will_WIN/status/1370424841887756293?s=20)
+
+## בנט
+* [זיגזוג מתמיד לגבי הקורונה](https://www.facebook.com/moshik.kovarsky/posts/3931958176827188)
