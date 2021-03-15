@@ -4,6 +4,7 @@
 
 * [עשור עם הכי פחות הרוגי טרור](https://twitter.com/LiberalRiWo/status/1226772926558560256?s=20)
 * [ביבי שינה לגמרי את התפיסה. חזק מאוד](https://twitter.com/yotambarnoy/status/1368957602286235651?s=20)
+* [ביבי ועזה](https://twitter.com/yotambarnoy/status/1371597735112159232?s=20)
 
 
 # ביטול הסכם הגרעין ובידוד איראן
