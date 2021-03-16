@@ -18,3 +18,4 @@
 
 ## בנט
 * [זיגזוג מתמיד לגבי הקורונה](https://www.facebook.com/moshik.kovarsky/posts/3931958176827188)
+* [אבל שקד אמרה שהקורונה דועכת בכל העולם](https://twitter.com/LiberalRiWo/status/1371688650094837762?s=20)
