@@ -17,6 +17,7 @@
 
 [כח היועץ המשפטי התעצם מאוד עם הזמן](https://hashiloach.org.il/%D7%94%D7%9E%D7%97%D7%98%D7%A3-%D7%94%D7%A9%D7%A7%D7%98-%D7%9E%D7%99%D7%95%D7%A2%D7%A6%D7%99%D7%9D-%D7%9E%D7%A9%D7%A4%D7%98%D7%99%D7%99%D7%9D-%D7%9C%D7%A9%D7%95%D7%9E%D7%A8%D7%99-%D7%A1%D7%A3/)
 
+* [ניגוד העניינים המוסדי בכך שהיועץ המשפטי גם תובע. חזק](https://twitter.com/rothmar/status/1371568189239394304?s=20)
 * [מנדלבליט מושחת חלק א](https://youtu.be/kQnDJiuEcIk) [חלק ב](https://youtu.be/2L1p1WqdYwE)
 * [מנדלבליט מסתיר את חלקו בפרשת הרפז](https://www.facebook.com/permalink.php?story_fbid=2237202836579578&id=100008696496760)
 * [מנדלבליט מודה שהוא מוחזק בגרון ע"י שי ניצן](https://www.youtube.com/watch?v=jE6RT4hX5R4&list=PLn9VWDc3o2MHuj9r9Va-EMMXiyplWG-fS&index=53)
