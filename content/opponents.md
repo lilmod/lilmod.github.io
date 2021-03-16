@@ -23,3 +23,4 @@
 * [זיגזוג מתמיד לגבי הקורונה](https://www.facebook.com/moshik.kovarsky/posts/3931958176827188)
 * [אבל שקד אמרה שהקורונה דועכת בכל העולם](https://twitter.com/LiberalRiWo/status/1371688650094837762?s=20)
 * [שמחה רוטמן מסביר למה ללכת עם השמאל זה טרוף](https://twitter.com/amirettin/status/1371819966622806016?s=20)
+* [האם בנט יבגוד בימין](https://youtu.be/oMj-uS8KHac)
