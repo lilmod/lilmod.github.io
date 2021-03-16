@@ -20,6 +20,7 @@
 * [סער ביים מתקיפים מהליכוד](https://twitter.com/DannyHendler/status/1371796917592678403?s=20)
 
 ## בנט
+* [למה שימני יצביע לבנט? לימור סמימיאן. חזק](https://twitter.com/yotambarnoy/status/1371901976645107712?s=20)
 * [זיגזוג מתמיד לגבי הקורונה](https://www.facebook.com/moshik.kovarsky/posts/3931958176827188)
 * [אבל שקד אמרה שהקורונה דועכת בכל העולם](https://twitter.com/LiberalRiWo/status/1371688650094837762?s=20)
 * [שמחה רוטמן מסביר למה ללכת עם השמאל זה טרוף](https://twitter.com/amirettin/status/1371819966622806016?s=20)
