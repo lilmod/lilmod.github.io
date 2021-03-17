@@ -15,6 +15,7 @@
 * [כל מנהיגי העולם מעריצים את ביבי. חזק](https://imgur.com/a/DGkwwkf)
 * [ביבי מתאר את היכולת שלו מול האמריקאים](https://youtu.be/oGVeJwyAeec?t=1494)
 * [מה נותן לנתניהו השראה. חזק](https://youtu.be/JUoxg0VlUXE?t=1114)
+* [ראיון תוקפני מול ביבי, אך הוא לא נרתע](https://youtu.be/sZVRYwMbtqM)
 * [האסטרטגיה](https://www.israelhayom.co.il/opinion/729247)
 * [אילנה דיין על ביבי](https://youtu.be/BtWdZ71UfV4)
 * [ראיון מקיף](https://www.facebook.com/watch/?ref=saved&v=487870205459997)
