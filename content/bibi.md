@@ -3,6 +3,7 @@
 # בנימין נתניהו
 
 * [פודקאסט מעולה עם ביבי. חובה](https://www.youtube.com/watch?v=_bJy9XLzXvM)
+* [ראיון מעולה של אברי גלעד עם ביבי](https://www.facebook.com/moshik.kovarsky/videos/3937497419606597)
 * [ביבי שינה לגמרי את התפיסה. חזק מאוד](https://twitter.com/yotambarnoy/status/1368957602286235651?s=20)
 * [מנכ"ל פייזר מסביר איך ישראל קבלה את החיסונים ראשונה](https://www.facebook.com/yotam.barnoy/posts/10158624692434845)
 * [אימן עודה מדבר על הישגיו של ביבי. חזק](https://www.youtube.com/watch?v=fa5-jmHtBCM)
