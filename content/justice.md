@@ -12,6 +12,7 @@
 * [ניגוד עניינים. חזק](https://twitter.com/Lazy_Mustang/status/1215611953537830912?s=20)
 * [גלובס: ביקשו ממנו לא לפרסם על מערכת המשפט כדי לעזור לשמאל להיבחר](https://twitter.com/RotterNews/status/1193244640734064642?s=20)
 * [שלטון קבוע ושלטון מתחלף. חזק](https://youtu.be/XyU_wCEBP5g)
+* [ראיון חזק עם שמחה רוטמן על הבעיות במערכת המשפט. אנגלית](https://www.youtube.com/watch?v=dOiUcbGt7hM)
 
 ## היועץ המשפטי
 
