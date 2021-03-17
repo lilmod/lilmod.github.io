@@ -13,6 +13,7 @@
 * [אפילו אנשי שמאל לא חושבים שהוא מתאים לתפקיד](https://twitter.com/DannyHendler/status/1370361414125244420?s=20)
 * [הסיוט שהיה יכול להיות אם לפיד היה מקים ממשלה. חזק](https://twitter.com/yotambarnoy/status/1370939020683972614?s=20)
 * [לפיד והחיסונים](https://twitter.com/Or9uTUMESQcdtK9/status/1371439295056248832?s=20)
+* [לפיד: אין סיכוי שיגיעו חיסונים](https://youtu.be/5a1J0THMtao)
 
 ## סער
 * [איש מלא כריזמה](https://twitter.com/yoavweintraub/status/1370061024179728388)
