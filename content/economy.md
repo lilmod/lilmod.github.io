@@ -40,5 +40,6 @@
 * [חמישה מליארד ש"ח לממשלה בשנת 2020](https://twitter.com/arutz20/status/1227343031055081473?s=20)
 * [המדינה תקבל 60% מרווחי הגז](https://www.idi.org.il/articles/23742)
 * [הכנסות מהגז לאורך זמן](https://www.idi.org.il/articles/23742)
+* [למה הכנסות הגז נמוכות יותר](https://twitter.com/yotambarnoy/status/1372237462764945413?s=20)
 
 </div>
