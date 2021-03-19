@@ -7,7 +7,7 @@
 * [מי יצלצל ב3 לפנות בוקר](https://twitter.com/nachi_z9/status/1370108742377832448?s=20)
 * [הישג עולמי מדהים](https://youtu.be/JRiI_SvxL6w)
 * [ביבי מול לפיד. חזק](https://youtu.be/7WkdiQLiNdk)
-* [בעולם סגור, בישראל פתוח. חזק](https://twitter.com/netanyahu/status/1371832883409731584?s=20)
+* [בעולם סגור, בישראל פתוח. חזק](https://youtu.be/x1tuIFPBDXY)
 * [ישראל הראשונה שתצא מהקורונה](https://twitter.com/netanyahu/status/1369699761687760901?s=20)
 * [פרופ' עידית מטות על החיסונים](https://youtu.be/QYC-UbLzSEY)
 * [ראש ממשלת הונגריה על הובלת ישראל בקורונה](https://twitter.com/netanyahu/status/1370092780035440645?s=20)
