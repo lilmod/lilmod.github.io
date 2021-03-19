@@ -11,6 +11,7 @@
 ## אוביקטיביות
 
 * [רוב העיתונאים הם שמאל ונגד ביבי](https://youtu.be/OLwIs_ZFH6c)
+* [תעמולה ללא בושה: הקורונה והחיסונים](https://twitter.com/egozim1/status/1372922157915865093?s=20)
 * [חזק מאוד. לקרוע את המסך האדום](https://www.israelhayom.co.il/opinion/735035)
 * [התקשורת בארץ היא ברובה ארגון תעמולה לשמאל. דוגמא](https://twitter.com/hananamiur/status/1226209922800594944?s=20)
 * [תקשורת אוביקטיבית](https://twitter.com/GolanOfer/status/1228026248930177024?s=20)
