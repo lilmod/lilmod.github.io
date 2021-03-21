@@ -32,3 +32,4 @@
 * [האם בנט יבגוד בימין](https://youtu.be/oMj-uS8KHac)
 * [סמוטריץ: הוא אמר לי שהוא מתכנן להחליף את ביבי](https://twitter.com/arutz20/status/1371874482772643847?s=20)
 * [סמוטריץ מסביר למה עזב את בנט](https://twitter.com/yotambarnoy/status/1371872113330683904?s=20)
+* [השמאל פתאום אוהב מאוד את בנט](https://twitter.com/belzam_ayala/status/1373536263660204039?s=20)
