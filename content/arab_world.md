@@ -21,5 +21,6 @@
 * [ערבים מגיעים לכינוסים של ביבי](https://twitter.com/Israelcohen911/status/1225340928526897152?s=20)
 * [ערבי תומך טרור לשעבר מסביר למה הוא תומך בימין](https://youtu.be/4-ocMtc5gww)
 * [מסר לערביי ישראל](https://youtu.be/p7A1xzyJcbo)
+* [ראיון עם אתר אלערב](https://www.alarab.com/Article/987228)
 
 </div>
