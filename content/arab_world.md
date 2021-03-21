@@ -24,5 +24,6 @@
 * [ערבי תומך טרור לשעבר מסביר למה הוא תומך בימין](https://youtu.be/4-ocMtc5gww)
 * [מסר לערביי ישראל](https://youtu.be/p7A1xzyJcbo)
 * [ראיון עם אתר אלערב](https://www.alarab.com/Article/987228)
+* [לצערנו יש זיופים רבים במגזר הערבי](https://twitter.com/ImTirtzu/status/1373664843354533894?s=20)
 
 </div>
