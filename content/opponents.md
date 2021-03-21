@@ -1,6 +1,7 @@
 # מתחרים
 
 * [בובוטציה. חזק](https://youtu.be/EzFrkdT8-Ic)
+* [פוסט על השמאל והתקשורת. חזק](https://twitter.com/yotambarnoy/status/1373460981536407558?s=20)
 * [מי מאחד ומי מפלג - מעניין](https://twitter.com/LMalenboim/status/1369212483802693636?s=20)
 
 ## הסטוריה
