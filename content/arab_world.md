@@ -2,6 +2,7 @@
 
 # יחסים עם העולם הערבי
 
+* [מקור הסכמי השלום. חזק](https://twitter.com/yotambarnoy/status/1373647526973341697?s=20)
 * [יחסים עם סודן זה הישג אדיר בשביל ישראל. חזק](https://twitter.com/netanyahu/status/1224453960485855232?s=20)
 * [מטוס לישראל טס מעל סודן לראשונה!](https://rotter.net/forum/scoops1/604214.shtml)
 * [הסכם עם העולם הערבי!](https://twitter.com/SeanDurns/status/1227638626374295553?s=20)
