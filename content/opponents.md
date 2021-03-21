@@ -26,7 +26,7 @@
 
 ## בנט
 * [למה שימני יצביע לבנט? לימור סמימיאן. חזק](https://twitter.com/yotambarnoy/status/1371901976645107712?s=20)
-* [בנט מודה: לא יצטרף אל ביבי](https://youtu.be/26PNFJnIhxs)
+* [בנט מודה: לא יצטרף אל ביבי](https://www.youtube.com/watch?v=tsRiCAaHqPk)
 * [בנט במילים שלו](https://twitter.com/yotambarnoy/status/1373652390746984448?s=20)
 * [זיגזוג מתמיד לגבי הקורונה](https://www.facebook.com/moshik.kovarsky/posts/3931958176827188)
 * [אבל שקד אמרה שהקורונה דועכת בכל העולם](https://twitter.com/LiberalRiWo/status/1371688650094837762?s=20)
