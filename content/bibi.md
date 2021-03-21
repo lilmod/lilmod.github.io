@@ -40,6 +40,7 @@
 * [אביו של בן כספית: לא היה מנהיג כמוך מאז בן גוריון ובגין](https://actualic.co.il/%D7%90%D7%91%D7%99%D7%95-%D7%A9%D7%9C-%D7%91%D7%9F-%D7%9B%D7%A1%D7%A4%D7%99%D7%AA-%D7%9C%D7%A8%D7%94%D7%9E-%D7%9E%D7%90%D7%96-%D7%91%D7%9F-%D7%92%D7%95%D7%A8%D7%99%D7%95%D7%9F-%D7%95%D7%91%D7%92/)
 * [עזב את אוניברסיטת אמ-אי-טי ב73 לבוא להילחם](https://twitter.com/ShmuelShvili/status/1371187560190521355?s=20)
 * [אני מפאיניק גאה אבל הפעם אני מצביע לנתניהו. אנגלית. חזק](https://www.algemeiner.com/2021/03/18/im-a-proud-mapainik-but-this-time-im-voting-for-netanyahu/?fbclid=IwAR34zgOxyzQ2FS7yhb1_96LEFa4zuZbl-cOJ4n9-wjxEWPshq4BrQU77UW4)
+* [הכול היה יכול להיראות אחרת. חזק](https://www.israelhayom.co.il/opinion/862897)
 
 # טענות נגדו
 * [מי מאחד ומי מפלג - מעניין](https://twitter.com/LMalenboim/status/1369212483802693636?s=20)
