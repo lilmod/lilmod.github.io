@@ -8,6 +8,7 @@
 * [השוואת נתונים בעשור האחרון](https://imgur.com/PcMt3Br)
 * [ביבי מול לפיד בקורונה, ומה באמת קרה. חזק](https://www.youtube.com/watch?v=7WkdiQLiNdk)
 * [בובוטציה. חזק](https://youtu.be/EzFrkdT8-Ic)
+* [אנחנו נתניהו, מי אתם? חזק מאוד](https://twitter.com/yotambarnoy/status/1373636082747768837?s=20)
 * [מה יש להם? חזק](https://youtu.be/DGaEOUj5F3U)
 * [שחמט](https://youtu.be/YJkcn2fKslg)
 
