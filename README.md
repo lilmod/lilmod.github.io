@@ -7,6 +7,7 @@
 * [פודקאסט חובה! שי גולדן וביבי בשיחה](https://www.youtube.com/watch?v=_bJy9XLzXvM)
 * [השוואת נתונים בעשור האחרון](https://imgur.com/PcMt3Br)
 * [ביבי מול לפיד בקורונה, ומה באמת קרה. חזק](https://www.youtube.com/watch?v=7WkdiQLiNdk)
+* [בובוטציה. חזק](https://youtu.be/EzFrkdT8-Ic)
 * [מה יש להם? חזק](https://youtu.be/DGaEOUj5F3U)
 * [שחמט](https://youtu.be/YJkcn2fKslg)
 
