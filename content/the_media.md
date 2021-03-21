@@ -1,6 +1,7 @@
 <div dir="rtl" markdown="1">
 
 # התקשורת
+* [פוסט על השמאל והתקשורת. חזק](https://twitter.com/yotambarnoy/status/1373460981536407558?s=20)
 
 ## התקשורת והפרקליטות
 
