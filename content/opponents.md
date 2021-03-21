@@ -33,6 +33,7 @@
 * [שמחה רוטמן מסביר למה ללכת עם השמאל זה טרוף](https://twitter.com/amirettin/status/1371819966622806016?s=20)
 * [האם בנט יבגוד בימין](https://youtu.be/oMj-uS8KHac)
 * [סמוטריץ: הוא אמר לי שהוא מתכנן להחליף את ביבי](https://twitter.com/arutz20/status/1371874482772643847?s=20)
+* [אוחנה מכסח את טענות בנט ושקד](https://twitter.com/yotambarnoy/status/1373694221861990410?s=20)
 * [סמוטריץ מגיב להאשמות של בנט](https://twitter.com/yotambarnoy/status/1373685945245954050?s=20)
 * [סמוטריץ מסביר למה עזב את בנט](https://twitter.com/yotambarnoy/status/1371872113330683904?s=20)
 * [השמאל פתאום אוהב מאוד את בנט](https://twitter.com/belzam_ayala/status/1373536263660204039?s=20)
