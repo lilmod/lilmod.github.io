@@ -17,6 +17,7 @@
 * [לפיד והחיסונים](https://twitter.com/Or9uTUMESQcdtK9/status/1371439295056248832?s=20)
 * [לפיד: אין סיכוי שיגיעו חיסונים](https://youtu.be/5a1J0THMtao)
 * [לפיד: הפצת פייק](https://twitter.com/yotambarnoy/status/1372633682566115334)
+* [לפיד מבריז קבוע בכנסת ושיקר שהיה לו תירוץ בטחוני](https://www.haaretz.co.il/blogs/tomeravital/BLOG-1.6070672)
 * [לפיד שיקר על השירות הצבאי שלו](https://www.patrioti.co.il/Article.aspx?guid=6b4679e7-f9b1-4503-ac02-313188a5c39e&whatsapp=1)
 
 ## סער
