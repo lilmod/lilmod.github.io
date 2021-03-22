@@ -41,6 +41,7 @@
 * [עזב את אוניברסיטת אמ-אי-טי ב73 לבוא להילחם](https://twitter.com/ShmuelShvili/status/1371187560190521355?s=20)
 * [אני מפאיניק גאה אבל הפעם אני מצביע לנתניהו. אנגלית. חזק](https://www.algemeiner.com/2021/03/18/im-a-proud-mapainik-but-this-time-im-voting-for-netanyahu/?fbclid=IwAR34zgOxyzQ2FS7yhb1_96LEFa4zuZbl-cOJ4n9-wjxEWPshq4BrQU77UW4)
 * [הכול היה יכול להיראות אחרת. חזק](https://www.israelhayom.co.il/opinion/862897)
+* [ראיון עם JNS. אנגלית](https://www.jns.org/im-going-to-turn-israel-into-a-world-superpower/?fbclid=IwAR18FlMnQBkFhOURA7BZzw_d91BR97xtg00lE6of5Bn58coPTj64ItIkR1s)
 
 # טענות נגדו
 * [מי מאחד ומי מפלג - מעניין](https://twitter.com/LMalenboim/status/1369212483802693636?s=20)
