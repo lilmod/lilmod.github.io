@@ -20,6 +20,7 @@
 * [לפיד שיקר על השירות הצבאי שלו](https://www.patrioti.co.il/Article.aspx?guid=6b4679e7-f9b1-4503-ac02-313188a5c39e&whatsapp=1)
 
 ## סער
+* [סער מודה שיתמוך ברוטציה עם לפיד. קול לסער זה קול ללפיד](https://youtu.be/ROdgP5RzF44)
 * [איש מלא כריזמה](https://twitter.com/yoavweintraub/status/1370061024179728388)
 * [שאשא ביטון, מספר 2 במפלגה](https://twitter.com/BB_WE_Will_WIN/status/1370424841887756293?s=20)
 * [סער ביים מתקיפים מהליכוד](https://twitter.com/DannyHendler/status/1371796917592678403?s=20)
