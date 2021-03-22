@@ -11,6 +11,7 @@
 * [סיגרים מול 100,000 ש"ח פנסיה](https://twitter.com/DdongISR/status/1227841651747557376?s=20)
 * [מנדלבליט אומר לאפי נווה שנסחט](https://www.youtube.com/watch?v=jE6RT4hX5R4&list=PLn9VWDc3o2MHuj9r9Va-EMMXiyplWG-fS&index=53)
 * [סיכום הבעיות בתיקים באנגלית](https://www.facebook.com/yotam.barnoy/posts/10158632580929845)
+* [דוגמאות אמיתיות לסיקור אוהד: חוק ישראל היום](https://twitter.com/giladzw/status/1373994995225661441?s=20)
 
 ## תיק 4000
 
