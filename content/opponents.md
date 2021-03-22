@@ -39,3 +39,6 @@
 * [סמוטריץ מסביר למה עזב את בנט](https://twitter.com/yotambarnoy/status/1371872113330683904?s=20)
 * [השמאל פתאום אוהב מאוד את בנט](https://twitter.com/belzam_ayala/status/1373536263660204039?s=20)
 * [ביבי הציע לבנט את תיק הביטחון](https://www.youtube.com/watch?v=-2zk3ayd-Xk)
+
+# ליברמן
+* [סופיה לנדבר, מספר 2 אצל ליברמן, מדברת עליו. מפחיד](https://youtu.be/Qk8KY9Y4Hig)
