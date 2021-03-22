@@ -12,6 +12,7 @@
 
 # המגזר הערבי
 
+* [תכנית נתניהו: טיסה ישירה למכה](https://twitter.com/AviKaner/status/1373972193386897408?s=20)
 * [ראיון של נתניהו אצל אל ערב](https://youtu.be/u3u1LKIE18s)
 * [הערבים רוצים את ביבי](https://twitter.com/YinonMagal/status/1371543437565169665?s=20)
 * [הבדואים תומכים בליכוד](https://www.facebook.com/permalink.php?story_fbid=3804685229612735&id=1105781849503100)
