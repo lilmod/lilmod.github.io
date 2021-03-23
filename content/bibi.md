@@ -36,6 +36,7 @@
 * [ישראל הפריפרית צריכה את נתניהו יותר משהוא צריך אותה](https://www.maariv.co.il/journalists/opinions/Article-827114)
 * [איך ביבי מנע אסון גדול על ישראל בעזרת יחסיו עם פוטין](https://youtu.be/oGVeJwyAeec?t=1897)
 * [מה יש להם?](https://youtu.be/DGaEOUj5F3U)
+* [מה זה באמת פולחן אישיות? פוסט נחמד](https://twitter.com/dan_unter/status/1374224396190031874?s=20)
 * [ראיון מאוד מעניין עם יאיר נתניהו](https://youtu.be/Dum0DRMYiZU)
 * [ביבי על דברים שהיו קשים להשגה](https://twitter.com/c_shlomit/status/1224799923364880386?s=20)
 * [אפילו אברמוביץ משבח את ביבי](https://youtu.be/Re1w7-A2CLc)
