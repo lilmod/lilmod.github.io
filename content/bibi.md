@@ -2,11 +2,11 @@
 
 # בנימין נתניהו
 
+* [ארז תדמור: נתניהו ייצר פרדיגמה חלופית. חזק](https://youtu.be/pZWVo1BdULs)
+* [לימור דרש: מה שנתניהו עשה לא מובן מאליו. חזק](https://youtu.be/5S9_OotUMDs)
+* [ביבי שינה לגמרי את התפיסה. חזק מאוד](https://twitter.com/yotambarnoy/status/1368957602286235651?s=20)
 * [פודקאסט מעולה עם ביבי. חובה](https://www.youtube.com/watch?v=_bJy9XLzXvM)
 * [ראיון מעולה של אברי גלעד עם ביבי](https://youtu.be/NDf7k2OsFi8)
-* [ביבי שינה לגמרי את התפיסה. חזק מאוד](https://twitter.com/yotambarnoy/status/1368957602286235651?s=20)
-* [לימור דרש: מה שנתניהו עשה לא מובן מאליו. חזק](https://youtu.be/5S9_OotUMDs)
-* [ארז תדמור: הישגי נתניהו. חזק](https://youtu.be/pZWVo1BdULs)
 * [אמנות החיבורים והפשרות. חזק](https://mida.org.il/2021/03/22/%d7%a0%d7%a7%d7%95%d7%93%d7%aa-%d7%94%d7%97%d7%95%d7%96%d7%a7-%d7%a9%d7%9c-%d7%a0%d7%aa%d7%a0%d7%99%d7%94%d7%95-%d7%90%d7%95%d7%9e%d7%a0%d7%95%d7%aa-%d7%94%d7%97%d7%99%d7%91%d7%95%d7%a8%d7%99%d7%9d/)
 * [מנכ"ל פייזר מסביר איך ישראל קבלה את החיסונים ראשונה](https://www.facebook.com/yotam.barnoy/posts/10158624692434845)
 * [אימן עודה מדבר על הישגיו של ביבי. חזק](https://www.youtube.com/watch?v=fa5-jmHtBCM)
