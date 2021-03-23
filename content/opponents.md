@@ -24,6 +24,7 @@
 ## סער
 * [סער מודה שיתמוך ברוטציה עם לפיד. קול לסער זה קול ללפיד](https://youtu.be/ROdgP5RzF44)
 * [איש מלא כריזמה](https://twitter.com/yoavweintraub/status/1370061024179728388)
+* [סער: לא צריך רסיסי מפלגות. רק ליכוד](https://twitter.com/Esi52804020/status/1358660773820645376?s=20)
 * [שאשא ביטון, מספר 2 במפלגה](https://twitter.com/BB_WE_Will_WIN/status/1370424841887756293?s=20)
 * [סער ביים מתקיפים מהליכוד](https://twitter.com/DannyHendler/status/1371796917592678403?s=20)
 
