@@ -11,6 +11,7 @@
 * [אנחנו נתניהו. מי אתם? חזק מאוד](https://twitter.com/yotambarnoy/status/1373636082747768837?s=20)
 * [טיפול בקורונה: מה הוא עשה, מה אחרים אמרו, ומה היה. חזק](https://www.youtube.com/watch?v=7WkdiQLiNdk)
 * [ראש ממשלת קנדה לשעבר מדבר על נתניהו](https://twitter.com/Lidar_Yarin/status/1220808197730074626?s=20)
+* [ארז תדמור: האם נתניהו ימין? תשובה חזקה](https://youtu.be/pZWVo1BdULs)
 * [פסל שעווה של ביבי הוקם ליד טראמפ ופוטין, ראשי מעצמות העולם](https://twitter.com/mohsaud08/status/1221805017172271104?s=20)
 * [זלמן שובל: אם ביבי יעזוב, זה יהיה נזק לישראל](https://www.facebook.com/permalink.php?story_fbid=2264143550552173&id=100008696496760)
 * [מדינאי ענק](https://twitter.com/ayeletsl/status/1224419208563449857?s=20)
