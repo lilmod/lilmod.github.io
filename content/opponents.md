@@ -30,7 +30,7 @@
 * [למה שימני יצביע לבנט? לימור סמימיאן. חזק](https://twitter.com/yotambarnoy/status/1371901976645107712?s=20)
 * [בנט מודה: לא יצטרף אל ביבי](https://www.youtube.com/watch?v=tsRiCAaHqPk)
 * [בנט במילים שלו](https://twitter.com/yotambarnoy/status/1373652390746984448?s=20)
-* [זיגזוג מתמיד לגבי הקורונה](https://www.facebook.com/moshik.kovarsky/posts/3931958176827188)
+* [זיגזוג מתמיד לגבי הקורונה](https://twitter.com/yotambarnoy/status/1371490152779022339?s=20)
 * [אבל שקד אמרה שהקורונה דועכת בכל העולם](https://twitter.com/LiberalRiWo/status/1371688650094837762?s=20)
 * [שמחה רוטמן מסביר למה ללכת עם השמאל זה טרוף](https://twitter.com/amirettin/status/1371819966622806016?s=20)
 * [האם בנט יבגוד בימין](https://youtu.be/oMj-uS8KHac)
