@@ -31,6 +31,7 @@
 * [סיקור אוהד זה לא שוחד](https://www.globes.co.il/news/article.aspx?did=1001307983#utm_source=RSS)
 * [מה מספר תיק 4000 על בכירי וואלה. חזק](https://www.makorrishon.co.il/magazine/dyukan/187123/)
 * [מיזוג בזק-יס אושר ב2005. חזק](https://www.youtube.com/watch?v=NXHpfWMzQ20)
+* [התיק נגד שלמה פילבר נסגר](https://twitter.com/filbers/status/1364911236882784258?s=20)
 
 ## התאגידים
 
