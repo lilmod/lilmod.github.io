@@ -29,6 +29,7 @@
 * [סער ביים מתקיפים מהליכוד](https://twitter.com/DannyHendler/status/1371796917592678403?s=20)
 
 ## בנט
+* [בנט אמר שלא יוכל להיות ראש ממשלה עם 7 מנדטים](https://twitter.com/keslasy/status/1379485290033774592?s=20)
 * [למה שימני יצביע לבנט? לימור סמימיאן. חזק](https://twitter.com/yotambarnoy/status/1371901976645107712?s=20)
 * [בנט מודה: לא יצטרף אל ביבי](https://www.youtube.com/watch?v=tsRiCAaHqPk)
 * [בנט במילים שלו](https://twitter.com/yotambarnoy/status/1373652390746984448?s=20)
