@@ -14,6 +14,7 @@
 * [שלטון קבוע ושלטון מתחלף. חזק](https://youtu.be/XyU_wCEBP5g)
 * [התכניות של אוחנה למערכת המשפט. חזק](https://twitter.com/KnessetT/status/1373993074540548096?s=20)
 * [ראיון חזק עם שמחה רוטמן על הבעיות במערכת המשפט. אנגלית](https://www.youtube.com/watch?v=dOiUcbGt7hM)
+* [ריבלין על מערכת המשפט](https://twitter.com/netanelgla/status/1379512627936817157?s=20)
 
 ## היועץ המשפטי
 
