@@ -30,6 +30,7 @@
 
 ## בנט
 * [בנט אמר שלא יוכל להיות ראש ממשלה עם 7 מנדטים](https://twitter.com/keslasy/status/1379485290033774592?s=20)
+* [בנט שלל ישיבה עם מרץ](https://twitter.com/c_shlomit/status/1379291281185202178?s=20)
 * [למה שימני יצביע לבנט? לימור סמימיאן. חזק](https://twitter.com/yotambarnoy/status/1371901976645107712?s=20)
 * [בנט מודה: לא יצטרף אל ביבי](https://www.youtube.com/watch?v=tsRiCAaHqPk)
 * [בנט במילים שלו](https://twitter.com/yotambarnoy/status/1373652390746984448?s=20)
