@@ -28,10 +28,15 @@
 * [בעיות בתיק 4000](https://www.facebook.com/galit.distalatbaryan/posts/2410553992405780)
 * [ניתוח מתעמק ע"י משפטן](https://borrer.co.il/article/?fbclid=IwAR3_CPlA-J84UmJQnXIDRUVJYSOpaVYr2DrGMoFFgrfMZbR47FROWBriLGM)
 * [תגובת שמאלנית משפטנית](https://www.facebook.com/galgura/posts/2474931346111707)
-* [סיקור אוהד זה לא שוחד](https://www.globes.co.il/news/article.aspx?did=1001307983#utm_source=RSS)
 * [מה מספר תיק 4000 על בכירי וואלה. חזק](https://www.makorrishon.co.il/magazine/dyukan/187123/)
 * [מיזוג בזק-יס אושר ב2005. חזק](https://www.youtube.com/watch?v=NXHpfWMzQ20)
 * [התיק נגד שלמה פילבר נסגר](https://twitter.com/filbers/status/1364911236882784258?s=20)
+
+### סיקור אוהד
+
+* [עורך דין מסביר למה הטקסטים מראים שלא היה שום תאום](https://twitter.com/netanelgla/status/1379536073043406849?s=20)
+* [סיקור אוהד זה לא שוחד](https://www.globes.co.il/news/article.aspx?did=1001307983#utm_source=RSS)
+
 
 ## התאגידים
 
