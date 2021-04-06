@@ -9,6 +9,7 @@
 * [הערבים מבינים שהפלסטינאים הם מקור הבעיה](https://twitter.com/ManaOfir/status/1223225888961187840)
 * [סודן מרשה לישראל לטוס בשמיה](https://www.reuters.com/article/us-israel-sudan/sudan-gives-israel-initial-okay-for-overflights-official-idUSKBN1ZZ31V?fbclid=IwAR3LiPXedVzfVPbfo4tJUlgYZ8MozFgF7MPnb8WFXhyhlAeUf2-GQzd3Ebs)
 * [מוחמד סעוד מעריץ של ביבי](https://twitter.com/mohsaud08/status/1227340886046101507?s=20)
+* [סודן מבטלת את החרם על ישראל מ58](https://www-haaretz-co-il.cdn.ampproject.org/v/s/www.haaretz.co.il/amp/news/world/africa/.premium-1.9687137?amp_js_v=a6&amp_gsa=1&usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16177384624285&referrer=https%3A%2F%2Fwww.google.com&amp_tf=%D7%9E%D7%90%D7%AA%20%251%24s&ampshare=https%3A%2F%2Fwww.haaretz.co.il%2Fnews%2Fworld%2Fafrica%2F.premium-1.9687137)
 
 # המגזר הערבי
 
