@@ -37,6 +37,7 @@
 * [עורך דין מסביר למה הטקסטים מראים שלא היה שום תאום](https://twitter.com/netanelgla/status/1379536073043406849?s=20)
 * [סיקור אוהד זה לא שוחד](https://www.globes.co.il/news/article.aspx?did=1001307983#utm_source=RSS)
 * [אילן ישועה מינה מלא שמאלנים בוואלה](https://twitter.com/elizipori/status/1379425329089941506?s=20)
+* [כך נראה סיקור אוהד?](https://twitter.com/mcl_bgn/status/1379795822829780992)
 
 ## התאגידים
 
