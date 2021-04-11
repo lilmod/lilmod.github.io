@@ -73,6 +73,7 @@
 * [פרקליטי מדינה לשעבר מלכלכים על דן אלדד](https://twitter.com/DannyHendler/status/1227136407858274305?s=20)
 * [מדליפי הפרקליטות](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
 * [הפרקליטות וחיים רמון](https://www.facebook.com/bar.shlush.1/posts/3451261461580586)
+* [בן כספית טען שהפרקליטות ביצעה הפיכה כשזה היה אולמרט](https://www.makorrishon.co.il/nrg/online/1/ART2/385/207.html)
 
 ## שחיתות במערכת בתי המשפט
 
