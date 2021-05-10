@@ -49,6 +49,7 @@
 * [ראיון עם JNS. אנגלית](https://www.jns.org/im-going-to-turn-israel-into-a-world-superpower/?fbclid=IwAR18FlMnQBkFhOURA7BZzw_d91BR97xtg00lE6of5Bn58coPTj64ItIkR1s)
 
 # טענות נגדו
+* [ביבי תמיד חבר לשמאל? לא נכון](https://twitter.com/yotambarnoy/status/1391562656214093834?s=20)
 * [מי מאחד ומי מפלג - מעניין](https://twitter.com/LMalenboim/status/1369212483802693636?s=20)
 * [מלפני 22 שנה](https://twitter.com/sari_azoulay/status/1344715397531136000?s=20)
 * [הטענות של השמאל נגד ביבי אותו דבר שנים](https://youtu.be/2tdE49LJ3IE)
