@@ -2,6 +2,8 @@
 
 # History
 * [Map of ancient Israel](https://twitter.com/CraigStrath2883/status/1392283112785252357?s=20)
+* [Haj Amin Al-Husseini with Hitler video](https://twitter.com/ConspiracyLibel/status/1392586078025043973)
+* [Early Pictures of Israel](http://www.eretzyisroel.org/~dhershkowitz/index.html)
 
 # Misc
 * [Israel vs Hamas Illustration](https://twitter.com/Rivki_Katz/status/1392488363219984386?s=20)
