@@ -9,3 +9,4 @@
 
 # Videos
 * [Arabs lynching Jew who entered Tamra](https://twitter.com/AviRabina/status/1392595614173642762?s=20)
+* [Israel arresting lynchers in Log](https://twitter.com/AviNoga3/status/1392477313800056836?s=20)
