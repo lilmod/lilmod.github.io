@@ -16,6 +16,7 @@
 # Videos
 * [Arabs lynching Jew who entered Tamra](https://twitter.com/AviRabina/status/1392595614173642762?s=20)
 * [Israel arresting lynchers in Log](https://twitter.com/AviNoga3/status/1392477313800056836?s=20)
+* [Well-made IDF video of rocket attacks](https://twitter.com/IDF/status/1392514864938115074?s=20)
 
 # IDF
 * [IDF explanation of why they strike buildings](https://twitter.com/IDF/status/1392590704946331648?s=20)
