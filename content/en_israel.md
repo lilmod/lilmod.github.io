@@ -17,6 +17,7 @@
 * [Arabs lynching Jew who entered Tamra](https://twitter.com/AviRabina/status/1392595614173642762?s=20)
 * [Israel arresting lynchers in Log](https://twitter.com/AviNoga3/status/1392477313800056836?s=20)
 * [Well-made IDF video of rocket attacks](https://twitter.com/IDF/status/1392514864938115074?s=20)
+* [Gilad Erdan answering Jake Tapper's question if Palestinians can defend themselves](https://twitter.com/DYShor/status/1392700873906790406?s=20)
 
 # IDF
 * [IDF explanation of why they strike buildings](https://twitter.com/IDF/status/1392590704946331648?s=20)
@@ -25,3 +26,4 @@
 # Hamas
 * [Cartoon: negotiating bibi and Hamas](https://twitter.com/DreyfusShawn/status/1392649793093177344?s=20)
 * [Hamas charter Jamie Weinstein article](https://dailycaller.com/2014/07/22/9-things-you-need-to-know-about-hamas-straight-from-its-charter/)
+
