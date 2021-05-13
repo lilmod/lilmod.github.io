@@ -1,5 +1,8 @@
 # Israel
 
+# Analysis
+* [Excellent analysis of the conflict 2021](https://www.avimelamed.com/2021/05/12/the-israel-gaza-war-of-2021-what-really-lead-to-the-war/)
+
 # History
 * [Map of ancient Israel](https://twitter.com/CraigStrath2883/status/1392283112785252357?s=20)
 * [Haj Amin Al-Husseini with Hitler video](https://twitter.com/ConspiracyLibel/status/1392586078025043973)
