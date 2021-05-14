@@ -28,6 +28,7 @@
 * [Interception over Ashdod](https://twitter.com/StandWithUs/status/1392969373988556803?s=20)
 * [Hamas attacking Israel IDF video. Excellent](https://twitter.com/IDF/status/1392514864938115074?s=20)
 * [Imagine if it was Londong. Excellent video](https://twitter.com/netanyahu/status/1392796315164323841?s=20)
+* [Video of Hamas rocket shooting its own people](https://twitter.com/LizaRosen0000/status/1393042525766696963?s=20)
 
 # Palestinians
 * [Saudi explains to Palestinians how they abuse their money and aren't Arabs](https://twitter.com/shalomswii13/status/1392869905054289924?s=20)
