@@ -26,6 +26,8 @@
 * [Hamas charter Jamie Weinstein article](https://dailycaller.com/2014/07/22/9-things-you-need-to-know-about-hamas-straight-from-its-charter/)
 * [Video of missiles being fired by Hamas](https://twitter.com/DYShor/status/1392272502710210560?s=20)
 * [Interception over Ashdod](https://twitter.com/StandWithUs/status/1392969373988556803?s=20)
+* [Hamas attacking Israel IDF video. Excellent](https://twitter.com/IDF/status/1392514864938115074?s=20)
+* [Imagine if it was Londong. Excellent video](https://twitter.com/netanyahu/status/1392796315164323841?s=20)
 
 # Palestinians
 * [Saudi explains to Palestinians how they abuse their money and aren't Arabs](https://twitter.com/shalomswii13/status/1392869905054289924?s=20)
