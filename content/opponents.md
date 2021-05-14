@@ -50,3 +50,5 @@
 
 # ליברמן
 * [סופיה לנדבר, מספר 2 אצל ליברמן, מדברת עליו. מפחיד](https://youtu.be/Qk8KY9Y4Hig)
+* [סחר בשטח אש למען ילדיו](https://m.news1.co.il/Archive/002-D-137526-00.html)
+* [הפיל על עוזריו עברות שוחד](https://twitter.com/AmichaiChikli/status/1393131704357953536?s=20)
