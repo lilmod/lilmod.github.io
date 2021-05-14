@@ -38,6 +38,7 @@
 * [Saudi explains to Palestinians how they abuse their money and aren't Arabs](https://twitter.com/shalomswii13/status/1392869905054289924?s=20)
 * [Haj Amin Al Husseini with Hitler picture](https://api.time.com/wp-content/uploads/2015/10/mufti.jpeg?w=1488&quality=70)
 * [Haj Amin Al-Husseini with Hitler video](https://twitter.com/ConspiracyLibel/status/1392586078025043973)
+* [Mufti and the Fuhrer](https://www.jewishvirtuallibrary.org/the-mufti-and-the-f-uuml-hrer)
 
 # Al Aqsa
 * [Palestinians throwing rocks and firebombs at Al Aqsa](https://twitter.com/IdoDaniel/status/1391087459535048704?s=20)
