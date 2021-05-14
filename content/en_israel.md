@@ -1,5 +1,7 @@
 # Israel
 
+* [Decent interview British TV explaining Al Aqsa, Hamas etc](https://twitter.com/IsraelinUK/status/1392961448075309058?s=20)
+
 # Analysis
 * [Excellent analysis of the conflict 2021](https://www.avimelamed.com/2021/05/12/the-israel-gaza-war-of-2021-what-really-lead-to-the-war/)
 
