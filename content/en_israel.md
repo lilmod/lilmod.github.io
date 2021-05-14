@@ -18,6 +18,7 @@
 # Videos
 * [Well-made IDF video of rocket attacks](https://twitter.com/IDF/status/1392514864938115074?s=20)
 * [Gilad Erdan answering Jake Tapper's question if Palestinians can defend themselves](https://twitter.com/DYShor/status/1392700873906790406?s=20)
+* [Ambassador Dermer explaining situation in Gaza](https://twitter.com/AmbDermer/status/1393179053843222530?s=20)
 
 # IDF
 * [IDF explanation of why they strike buildings](https://twitter.com/IDF/status/1392590704946331648?s=20)
