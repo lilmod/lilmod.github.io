@@ -36,6 +36,7 @@
 
 # Al Aqsa
 * [Palestinians throwing rocks and firebombs at Al Aqsa](https://twitter.com/IdoDaniel/status/1391087459535048704?s=20)
+* [Video of Palestinians shouting bomb Tel Aviv](https://twitter.com/benshapiro/status/1391746984608927744?s=20)
 
 # Israeli Arabs
 * [Sacking a Jewish hotel in Akko](https://twitter.com/qumranqu/status/1392951388351737858?s=20)
