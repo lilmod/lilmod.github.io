@@ -24,6 +24,7 @@
 # Hamas
 * [Cartoon: negotiating bibi and Hamas](https://twitter.com/DreyfusShawn/status/1392649793093177344?s=20)
 * [Hamas charter Jamie Weinstein article](https://dailycaller.com/2014/07/22/9-things-you-need-to-know-about-hamas-straight-from-its-charter/)
+* [Video of missiles being fired by Hamas](https://twitter.com/DYShor/status/1392272502710210560?s=20)
 
 # Israeli Arabs
 * [Sacking a Jewish hotel in Akko](https://twitter.com/qumranqu/status/1392951388351737858?s=20)
