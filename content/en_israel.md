@@ -34,6 +34,8 @@
 * [Haj Amin Al Husseini with Hitler picture](https://api.time.com/wp-content/uploads/2015/10/mufti.jpeg?w=1488&quality=70)
 * [Haj Amin Al-Husseini with Hitler video](https://twitter.com/ConspiracyLibel/status/1392586078025043973)
 
+# Al Aqsa
+* [Palestinians throwing rocks and firebombs at Al Aqsa](https://twitter.com/IdoDaniel/status/1391087459535048704?s=20)
 
 # Israeli Arabs
 * [Sacking a Jewish hotel in Akko](https://twitter.com/qumranqu/status/1392951388351737858?s=20)
