@@ -5,7 +5,6 @@
 
 # History
 * [Map of ancient Israel](https://twitter.com/CraigStrath2883/status/1392283112785252357?s=20)
-* [Haj Amin Al-Husseini with Hitler video](https://twitter.com/ConspiracyLibel/status/1392586078025043973)
 * [Early Pictures of Israel](http://www.eretzyisroel.org/~dhershkowitz/index.html)
 
 # Misc
@@ -32,6 +31,9 @@
 
 # Palestinians
 * [Saudi explains to Palestinians how they abuse their money and aren't Arabs](https://twitter.com/shalomswii13/status/1392869905054289924?s=20)
+* [Haj Amin Al Husseini with Hitler picture](https://api.time.com/wp-content/uploads/2015/10/mufti.jpeg?w=1488&quality=70)
+* [Haj Amin Al-Husseini with Hitler video](https://twitter.com/ConspiracyLibel/status/1392586078025043973)
+
 
 # Israeli Arabs
 * [Sacking a Jewish hotel in Akko](https://twitter.com/qumranqu/status/1392951388351737858?s=20)
