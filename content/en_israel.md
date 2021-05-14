@@ -27,6 +27,9 @@
 * [Video of missiles being fired by Hamas](https://twitter.com/DYShor/status/1392272502710210560?s=20)
 * [Interception over Ashdod](https://twitter.com/StandWithUs/status/1392969373988556803?s=20)
 
+# Palestinians
+* [Saudi explains to Palestinians how they abuse their money and aren't Arabs](https://twitter.com/shalomswii13/status/1392869905054289924?s=20)
+
 # Israeli Arabs
 * [Sacking a Jewish hotel in Akko](https://twitter.com/qumranqu/status/1392951388351737858?s=20)
 * [Arabs lynching Jew who entered Tamra](https://twitter.com/AviRabina/status/1392595614173642762?s=20)
