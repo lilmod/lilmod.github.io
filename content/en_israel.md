@@ -59,3 +59,6 @@
 
 # Jerusalem
 * [Koran says Israel given to Jews](http://www.danielpipes.org/20357/can-the-koran-solve-israel-political-impasse)
+
+# AP In Gaza
+* [AP knew they had Hamas there](https://twitter.com/FredMenachem/status/1393784006764806147?s=20)
