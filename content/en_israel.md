@@ -71,3 +71,6 @@
 
 # Iran
 * [Good cartoon pic of Iran funding network](https://twitter.com/DreyfusShawn/status/1393543594104000514?s=20)
+
+# The Squad
+* [Idiot AOC knowing nothing about geopolitics](https://twitter.com/KyleKashuv/status/1393688941132353539?s=20)
