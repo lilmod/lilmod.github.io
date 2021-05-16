@@ -62,3 +62,6 @@
 
 # AP In Gaza
 * [AP knew they had Hamas there](https://twitter.com/FredMenachem/status/1393784006764806147?s=20)
+
+# Disengagement 2005
+* [Idiotic Old views about how good it will be](https://twitter.com/ymedad/status/1393785087670489089?s=20)
