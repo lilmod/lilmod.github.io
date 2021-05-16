@@ -67,3 +67,4 @@
 
 # Disengagement 2005
 * [Idiotic Old views about how good it will be](https://twitter.com/ymedad/status/1393785087670489089?s=20)
+* [Chain of politicians and their views](https://twitter.com/elichaiben/status/1393693987454717958?s=20)
