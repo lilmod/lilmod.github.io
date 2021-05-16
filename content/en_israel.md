@@ -54,5 +54,8 @@
 * [Ayman Ouda inciting in Arabic (Hebrew)](https://www.20il.co.il/%D7%97%D7%A9%D7%99%D7%A4%D7%AA-%D7%A2%D7%A8%D7%95%D7%A5-20-%D7%94%D7%A4%D7%95%D7%A1%D7%98%D7%99%D7%9D-%D7%91%D7%A2%D7%A8%D7%91%D7%99%D7%AA-%D7%A9%D7%9C-%D7%90%D7%99%D7%99%D7%9E%D7%9F-%D7%A2%D7%95/?fbclid=IwAR1fCfXk48aor_qTw4HVXxhB9D6jMR_kqQjmDEf-D9ofXd0MEAuEaGLEhNw)
 * [Excellent video by Yosheph Hadad on Israeli coexistence](https://twitter.com/YosephHaddad/status/1393692473889890311?s=20)
 
+# Sheikh Jarrah
+* [Excellent video of Syrian blogger explaining why court favored Israel](https://twitter.com/YosephHaddad/status/1393341642426486785?s=20)
+
 # Jerusalem
 * [Koran says Israel given to Jews](http://www.danielpipes.org/20357/can-the-koran-solve-israel-political-impasse)
