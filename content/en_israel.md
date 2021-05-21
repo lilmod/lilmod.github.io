@@ -25,6 +25,7 @@
 * [IDF explanation of why they strike buildings](https://twitter.com/IDF/status/1392590704946331648?s=20)
 * [IDF example of building](https://twitter.com/IDF/status/1392538969515102209?s=20)
 * [IDF calls people to evacuate](https://www.youtube.com/watch?v=z-yDdIjwvg4)
+* [IDC cancels airstrike when seeing children there](https://www.youtube.com/watch?v=ovhpsGYUouE)
 
 # Hamas
 * [Children deserve better. Strong](https://youtu.be/RvVOqEUcoOQ)
