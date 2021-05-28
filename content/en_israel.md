@@ -10,6 +10,7 @@
 * [Map of ancient Israel](https://twitter.com/CraigStrath2883/status/1392283112785252357?s=20)
 * [Early Pictures of Israel](http://www.eretzyisroel.org/~dhershkowitz/index.html)
 * [History of Israel (not wikipedia)](https://www.history.com/topics/middle-east/history-of-israel)
+* [Excellent rebuttal of gradual maps](http://www.thetower.org/article/the-mendacious-maps-of-palestinian-loss/)
 
 # Misc
 * [Israel vs Hamas Illustration](https://twitter.com/Rivki_Katz/status/1392488363219984386?s=20)
