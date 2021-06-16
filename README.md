@@ -22,7 +22,9 @@
 * [הפרקליטות ומערכת המשפט](content/justice.md)
 * [התיקים וכתב האישום](content/cases.md)
 * [התקשורת](content/the_media.md)
-* [לפיד, בנט, סער](content/opponents.md)
+* [נפתלי בנט](content/bennett.md)
+* [לפיד, סער וכו](content/opponents.md)
+* [כוכבים בימין](content/right_stars.md)
 * [נושאים אחרים](content/other.md)
 * [המדריך הימני לתקשורת האמריקאית](content/us_media.md)
 </div>
