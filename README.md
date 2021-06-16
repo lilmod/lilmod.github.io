@@ -23,6 +23,7 @@
 * [התיקים וכתב האישום](content/cases.md)
 * [התקשורת](content/the_media.md)
 * [נפתלי בנט](content/bennett.md)
+* [ממשלת לפיד-בנט](content/left_govt.md)
 * [לפיד, סער וכו](content/opponents.md)
 * [כוכבים בימין](content/right_stars.md)
 * [המפלגות הערביות בכנסת](content/knesset_arabs.md)
