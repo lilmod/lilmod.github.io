@@ -33,6 +33,8 @@
 * [התיק נגד שלמה פילבר נסגר](https://twitter.com/filbers/status/1364911236882784258?s=20)
 
 ### מהנעשה במשפט
+* [פודקסט מעולה על תיק 4000 עם גדי טאוב, מושיק קוברסקי, גיא לוי](https://www.youtube.com/watch?v=Y5_BjbQo66k)
+* [תיק 4000 מתפורר](https://twitter.com/GadiTaub1/status/1404706310541778944?s=20)
 * [מגדל הקלפים של תיק 4000](https://youtu.be/AfUyPjbzW8M)
 * [הפרקליטות מודה שהיא לא בחנה התכתבות של ישועה עם פוליטיקאים אחרים](https://twitter.com/YossiFuchs/status/1402203197620510724?s=20)
 
