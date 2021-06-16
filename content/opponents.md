@@ -1,3 +1,5 @@
+<div dir="rtl" markdown="1">
+
 # מתחרים
 
 * [בובוטציה. חזק](https://youtu.be/EzFrkdT8-Ic)
