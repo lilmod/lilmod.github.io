@@ -11,6 +11,7 @@
 
 ## אנטי-ביבי
 
+* [סיקור ממשלת ביבי לעומת ממשלת לפיד-בנט](https://twitter.com/YinonMagal/status/1403968935008026624?s=20)
 * [רינה מצליח והטמטום שלה לגבי נאום האופוזיציה](https://twitter.com/LapidotYisahi/status/1404590349750767620?s=20)
 * [רוב העיתונאים הם שמאל ונגד ביבי](https://youtu.be/OLwIs_ZFH6c)
 * [תעמולה ללא בושה: הקורונה והחיסונים](https://twitter.com/egozim1/status/1372922157915865093?s=20)
