@@ -10,6 +10,7 @@
 * [בנט החריב את מפלגת הבית היהודי מבפנים ובגד בה](https://twitter.com/ErezZadok1/status/1404460727620997121?s=20)
 
 ## הבגידה בימין
+* [הבדל עצום בין מעשה גנץ למעשה בנט](https://twitter.com/Hamutal1/status/1404714791298547712)
 * [שקלי: בנט כבר לא בימין](https://youtu.be/X8lViFm1Gsk)
 * [מצעד השקרים של ימינה](https://youtu.be/bDScYV93nao)
 * [בגידה מלאה בערכים](https://twitter.com/realadamgold/status/1397606539343630337?s=20)
