@@ -9,8 +9,9 @@
 * [סיקור אוהד למנדלבליט](https://www.facebook.com/permalink.php?story_fbid=2221733214793207&id=100008696496760)
 * [גלובס: ביקשו ממנו לא לפרסם על מערכת המשפט כדי לעזור לשמאל להיבחר](https://twitter.com/RotterNews/status/1193244640734064642?s=20)
 
-## אוביקטיביות
+## אנטי-ביבי
 
+* [רינה מצליח והטמטום שלה לגבי נאום האופוזיציה](https://twitter.com/LapidotYisahi/status/1404590349750767620?s=20)
 * [רוב העיתונאים הם שמאל ונגד ביבי](https://youtu.be/OLwIs_ZFH6c)
 * [תעמולה ללא בושה: הקורונה והחיסונים](https://twitter.com/egozim1/status/1372922157915865093?s=20)
 * [חזק מאוד. לקרוע את המסך האדום](https://www.israelhayom.co.il/opinion/735035)
