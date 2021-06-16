@@ -14,6 +14,7 @@
 * [איתמר פליישמן שעבד תחת בנט מדבר עליו](https://www.youtube.com/watch?v=omgPXUNX-AY)
 * [בנט שיקר לבוחריו שוב ושוב לפני בחירות 2021](https://www.youtube.com/watch?v=BWtcV73JuRE)
 * [מבחר שקריו של בנט לבוחריו לפני הבחירות 2021](https://www.youtube.com/watch?v=AyrhBmO0zTg)
+* [בנט רץ לשקר לבוחריו ולחתום על "חוזה" לפני הבחירות](https://www.youtube.com/watch?v=3uopapMHV5M)
 
 ## בעייתיות עוד לפני הבגידה
 * [בנט יירט כניסה לממשלה, סער הסכים](https://ch10.co.il/news/675365/#.YMYzlahKg5s)
