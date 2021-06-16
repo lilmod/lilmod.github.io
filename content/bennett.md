@@ -3,6 +3,7 @@
 # נפתלי בנט
 
 ## הסטוריה של נוכלות
+* [בנט היה נוכל מתחילת הדרך](https://www.youtube.com/watch?v=KzZpZgE3hdU&t=580s)
 * [בנט מעל בכספי הבית היהודי, שכר חוקר פרטי נגד מתמודד והעביר את החיוב](https://elizipori.co.il/articles/bennet-orbach-210606/)
 * [נוכל עשיר ששוכר בלש פרטי ואפילו לא משלם](https://twitter.com/ErezZadok1/status/1397626527546806277?s=20)
 * [בנט התהפך בבחירות בבית שמש כשהמועמדת שלו הפסידה](https://twitter.com/yotambarnoy/status/1404983465087582219?s=20)
