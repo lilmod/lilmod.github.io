@@ -32,7 +32,8 @@
 * [מיזוג בזק-יס אושר ב2005. חזק](https://www.youtube.com/watch?v=NXHpfWMzQ20)
 * [התיק נגד שלמה פילבר נסגר](https://twitter.com/filbers/status/1364911236882784258?s=20)
 
-### מהמשפט
+### מהנעשה במשפט
+* [מגדל הקלפים של תיק 4000](https://youtu.be/AfUyPjbzW8M)
 * [הפרקליטות מודה שהיא לא בחנה התכתבות של ישועה עם פוליטיקאים אחרים](https://twitter.com/YossiFuchs/status/1402203197620510724?s=20)
 
 ### סיקור אוהד
