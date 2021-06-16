@@ -11,6 +11,7 @@
 
 ## הבגידה בימין
 * [שקלי: בנט כבר לא בימין](https://youtu.be/X8lViFm1Gsk)
+* [מצעד השקרים של ימינה](https://youtu.be/bDScYV93nao)
 * [בגידה מלאה בערכים](https://twitter.com/realadamgold/status/1397606539343630337?s=20)
 * [איתמר פליישמן שעבד תחת בנט מדבר עליו](https://www.youtube.com/watch?v=omgPXUNX-AY)
 * [בנט שיקר לבוחריו שוב ושוב לפני בחירות 2021](https://www.youtube.com/watch?v=BWtcV73JuRE)
