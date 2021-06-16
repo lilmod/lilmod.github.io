@@ -25,6 +25,7 @@
 * [נפתלי בנט](content/bennett.md)
 * [לפיד, סער וכו](content/opponents.md)
 * [כוכבים בימין](content/right_stars.md)
+* [המפלגות הערביות בכנסת](content/knesset_arabs.md)
 * [נושאים אחרים](content/other.md)
 * [המדריך הימני לתקשורת האמריקאית](content/us_media.md)
 </div>
