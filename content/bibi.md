@@ -6,6 +6,7 @@
 * [ארז תדמור: נתניהו ייצר פרדיגמה חלופית. חזק](https://youtu.be/pZWVo1BdULs)
 * [לימור דרש: מה שנתניהו עשה לא מובן מאליו. חזק](https://youtu.be/5S9_OotUMDs)
 * [ביבי שינה לגמרי את התפיסה. חזק מאוד](https://twitter.com/yotambarnoy/status/1368957602286235651?s=20)
+* [סרטון מעולה: 4 העוצמות של נתניהו](https://www.youtube.com/watch?v=0k0E0QrBQrc)
 * [פודקאסט מעולה עם ביבי. חובה](https://www.youtube.com/watch?v=_bJy9XLzXvM)
 * [ראיון מעולה של אברי גלעד עם ביבי](https://youtu.be/NDf7k2OsFi8)
 * [אמנות החיבורים והפשרות. חזק](https://mida.org.il/2021/03/22/%d7%a0%d7%a7%d7%95%d7%93%d7%aa-%d7%94%d7%97%d7%95%d7%96%d7%a7-%d7%a9%d7%9c-%d7%a0%d7%aa%d7%a0%d7%99%d7%94%d7%95-%d7%90%d7%95%d7%9e%d7%a0%d7%95%d7%aa-%d7%94%d7%97%d7%99%d7%91%d7%95%d7%a8%d7%99%d7%9d/)
