@@ -2,6 +2,7 @@
 
 # בנימין נתניהו
 
+## יכולות ומעשים
 * [השגריר לשעבר דרמר מדבר על נתניהו](https://youtu.be/pumfTI6CT6Y)
 * [ארז תדמור: נתניהו ייצר פרדיגמה חלופית. חזק](https://youtu.be/pZWVo1BdULs)
 * [לימור דרש: מה שנתניהו עשה לא מובן מאליו. חזק](https://youtu.be/5S9_OotUMDs)
@@ -49,7 +50,10 @@
 * [הכול היה יכול להיראות אחרת. חזק](https://www.israelhayom.co.il/opinion/862897)
 * [ראיון עם JNS. אנגלית](https://www.jns.org/im-going-to-turn-israel-into-a-world-superpower/?fbclid=IwAR18FlMnQBkFhOURA7BZzw_d91BR97xtg00lE6of5Bn58coPTj64ItIkR1s)
 
-# טענות נגדו
+## באופוזיציה
+* [נאום אופוזיציה חזק של ביבי מול בנט](https://youtu.be/mAo7z8L9-vo)
+
+## טענות נגדו
 * [ביבי תמיד חבר לשמאל? לא נכון](https://twitter.com/yotambarnoy/status/1391562656214093834?s=20)
 * [למה ביבי הוא הימין הכי אפקטיבי](https://twitter.com/netanelgla/status/1393237598735380485?s=20)
 * [מי מאחד ומי מפלג - מעניין](https://twitter.com/LMalenboim/status/1369212483802693636?s=20)
