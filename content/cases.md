@@ -45,10 +45,13 @@
 * [אילן ישועה מינה מלא שמאלנים בוואלה](https://twitter.com/elizipori/status/1379425329089941506?s=20)
 * [כך נראה סיקור אוהד?](https://twitter.com/mcl_bgn/status/1379795822829780992)
 
-## התאגידים
+### התאגידים
 
 * [איך לא האשימו את התאגידים בתיק 4000?](https://www.youtube.com/watch?v=n1HG0dKhK20&fbclid=IwAR3V1WhFxQLL8NMvuv-wB8TqO5UpLxch_7Yu9CjFg4ceOmwJeLAGGqbCyaE)
 * [איך לא לקחו את הכסף](https://www.facebook.com/TalOr314/posts/2349165085394790)
+
+## תיק 1000
+* [חומר החקירה מראה שביבי קנה סיגרים מכספו האישי](https://elizipori.co.il/articles/guy-peleg-210730/)
 
 ## העדים
 
