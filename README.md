@@ -26,6 +26,7 @@
 * [ממשלת לפיד-בנט](content/left_govt.md)
 * [לפיד, סער וכו](content/opponents.md)
 * [כוכבים בימין](content/right_stars.md)
+* [התנהגות כחל"ב בממשלת ביבי-גנץ](content/blue_white.md)
 * [המפלגות הערביות בכנסת](content/knesset_arabs.md)
 * [נושאים אחרים](content/other.md)
 * [המדריך הימני לתקשורת האמריקאית](content/us_media.md)
