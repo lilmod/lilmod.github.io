@@ -57,8 +57,9 @@
 * [עופר שלח: גנץ ויעלון אחראים לכישלון המנהרות](https://twitter.com/MiriBarbi/status/1226866783375806469?s=20)
 * [יעלון תוקף את בנט... ולא ממש יוצא לו טוב](https://www.facebook.com/419642391929143/videos/494390927888002/)
 
-## אשכנזי
+## גבי אשכנזי
 
+* [אשכנזי חשב לפגוע באינטרס של ישראל כדי לפגוע בנתניהו](https://youtu.be/7ItWepp_Zys)
 * [אשכנזי ביצע עברות חמורות](https://twitter.com/netanelgla/status/1226599357765562369?s=20)
 * [השאיר ריח של פגר בחדר](https://youtu.be/n58n9GgpTGU)
 * [עבריין](https://www.maariv.co.il/elections2019/news/Article-691550)
