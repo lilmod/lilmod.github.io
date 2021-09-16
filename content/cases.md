@@ -15,7 +15,7 @@
 
 ## תיק 4000
 
-* [חזק. עדו נתניהו מדבר](https://youtu.be/BbzsGLnlvD4)
+* [מצגת קצרה: צריך ועדת חקירה](https://drive.google.com/file/d/1wxJKX_vCIklczKy2BX-y2aQSsi6Rl467/view)
 * [20 שקרים](https://www.telecomnews.co.il/image/users/228328/ftp/my_files/%D7%AA%D7%99%D7%A7%20%D7%9E%D7%A7%D7%95%D7%A6%D7%A8%20%D7%99%D7%95%D7%AA%D7%A8%204000-1.pdf?id=32106808)
 * [הגרסה המלאה של 20 שקרים](https://www.telecomnews.co.il/%D7%9B%D7%9C-%D7%94%D7%90%D7%9E%D7%AA-%D7%A9%D7%9C%D7%90-%D7%A8%D7%95%D7%A6%D7%99%D7%9D-%D7%A9%D7%AA%D7%93%D7%A2%D7%95-%D7%A2%D7%9C-%D7%AA%D7%99%D7%A7-40009-20-%D7%A9%D7%A7%D7%A8%D7%99%D7%9D-%D7%91%D7%95%D7%9C%D7%98%D7%99%D7%9D-%D7%9E%D7%90%D7%AA-%D7%90%D7%91%D7%99-%D7%95%D7%99%D7%99%D7%A1-%D7%95%D7%90%D7%9C%D7%99-%D7%A6%D7%99%D7%A4%D7%95%D7%A8%D7%99.html)
 * [40 שקרים נוספים](https://www.telecomnews.co.il/%D7%A4%D7%99%D7%A8%D7%95%D7%98-50-%D7%94%D7%A9%D7%A7%D7%A8%D7%99%D7%9D-%D7%91%D7%AA%D7%99%D7%A7-4000-%D7%95%D7%99%D7%A9-%D7%99%D7%95%D7%AA%D7%A8-%D7%A9%D7%9E%D7%A1%D7%AA%D7%99%D7%A8%D7%99%D7%9D-%D7%91%D7%9B%D7%95%D7%95%D7%A0%D7%94-%D7%9E%D7%94%D7%A6%D7%99%D7%91%D7%95%D7%A8-%D7%94%D7%A8%D7%97%D7%91.html)
@@ -31,6 +31,7 @@
 * [מה מספר תיק 4000 על בכירי וואלה. חזק](https://www.makorrishon.co.il/magazine/dyukan/187123/)
 * [מיזוג בזק-יס אושר ב2005. חזק](https://www.youtube.com/watch?v=NXHpfWMzQ20)
 * [התיק נגד שלמה פילבר נסגר](https://twitter.com/filbers/status/1364911236882784258?s=20)
+* [חזק. עדו נתניהו מדבר](https://youtu.be/BbzsGLnlvD4)
 
 ### מהנעשה במשפט
 * [פודקסט מעולה על תיק 4000 עם גדי טאוב, מושיק קוברסקי, גיא לוי](https://www.youtube.com/watch?v=Y5_BjbQo66k)
