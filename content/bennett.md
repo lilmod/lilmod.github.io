@@ -13,6 +13,7 @@
 * [בנט החריב את מפלגת הבית היהודי מבפנים ובגד בה](https://twitter.com/ErezZadok1/status/1404460727620997121?s=20)
 
 ## הבגידה בימין
+* [סמוטריץ: בנט היה הולך עם לפיד בכל מקרה](https://twitter.com/Galicohen33/status/1439566698479292416/photo/1)
 * [הבדל עצום בין מעשה גנץ למעשה בנט](https://twitter.com/Hamutal1/status/1404714791298547712)
 * [שקלי: בנט כבר לא בימין](https://youtu.be/X8lViFm1Gsk)
 * [מצעד השקרים של ימינה](https://youtu.be/bDScYV93nao)
