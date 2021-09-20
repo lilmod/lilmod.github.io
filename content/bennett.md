@@ -2,15 +2,11 @@
 
 # נפתלי בנט
 
+## שקרים
+* [שרשור שקרים של בנט](https://twitter.com/yair_shohat/status/1430119427899600933?s=20)
+
 ## חוסר יכולות
 * [שיחה של בנט עם אביו של החייל שנורה בראש בגבול עזה. בושה](https://youtu.be/5CYHHIc76vI)
-
-## הסטוריה של נוכלות
-* [בנט היה נוכל מתחילת הדרך](https://www.youtube.com/watch?v=KzZpZgE3hdU&t=580s)
-* [בנט מעל בכספי הבית היהודי, שכר חוקר פרטי נגד מתמודד והעביר את החיוב](https://elizipori.co.il/articles/bennet-orbach-210606/)
-* [נוכל עשיר ששוכר בלש פרטי ואפילו לא משלם](https://twitter.com/ErezZadok1/status/1397626527546806277?s=20)
-* [בנט התהפך בבחירות בבית שמש כשהמועמדת שלו הפסידה](https://twitter.com/yotambarnoy/status/1404983465087582219?s=20)
-* [בנט החריב את מפלגת הבית היהודי מבפנים ובגד בה](https://twitter.com/ErezZadok1/status/1404460727620997121?s=20)
 
 ## הבגידה בימין
 * [סמוטריץ: בנט היה הולך עם לפיד בכל מקרה](https://twitter.com/Galicohen33/status/1439566698479292416/photo/1)
@@ -23,6 +19,13 @@
 * [מבחר שקריו של בנט לבוחריו לפני הבחירות 2021](https://www.youtube.com/watch?v=AyrhBmO0zTg)
 * [בנט רץ לשקר לבוחריו ולחתום על "חוזה" לפני הבחירות](https://www.youtube.com/watch?v=3uopapMHV5M)
 * [נאום אופוזיציה חזק של ביבי מול בנט](https://youtu.be/mAo7z8L9-vo)
+
+## הסטוריה של נוכלות
+* [בנט היה נוכל מתחילת הדרך](https://www.youtube.com/watch?v=KzZpZgE3hdU&t=580s)
+* [בנט מעל בכספי הבית היהודי, שכר חוקר פרטי נגד מתמודד והעביר את החיוב](https://elizipori.co.il/articles/bennet-orbach-210606/)
+* [נוכל עשיר ששוכר בלש פרטי ואפילו לא משלם](https://twitter.com/ErezZadok1/status/1397626527546806277?s=20)
+* [בנט התהפך בבחירות בבית שמש כשהמועמדת שלו הפסידה](https://twitter.com/yotambarnoy/status/1404983465087582219?s=20)
+* [בנט החריב את מפלגת הבית היהודי מבפנים ובגד בה](https://twitter.com/ErezZadok1/status/1404460727620997121?s=20)
 
 ## בעייתיות עוד לפני הבגידה
 * [בנט יירט כניסה לממשלה, סער הסכים](https://ch10.co.il/news/675365/#.YMYzlahKg5s)
