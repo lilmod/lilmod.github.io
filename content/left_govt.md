@@ -9,6 +9,7 @@
 * [עליה עצומה בחולים](https://twitter.com/levyguy77/status/1443279212534714368?s=20)
 * [בנט מבטל ביקור לכבד את ה"שאהידים" של הערבים](https://twitter.com/realadamgold/status/1443660199617781762)
 * [רשיון לחיים - עבודה של הממשלה הקודמת](https://twitter.com/kann_news/status/1443619146307018759?s=20)
+* [כמות מתים אדירה](https://twitter.com/yoyoeldad/status/1443607426767409153?s=20)
 
 ## ההקמה
 
