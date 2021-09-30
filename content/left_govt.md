@@ -10,6 +10,7 @@
 * [בנט מבטל ביקור לכבד את ה"שאהידים" של הערבים](https://twitter.com/realadamgold/status/1443660199617781762)
 * [רשיון לחיים - עבודה של הממשלה הקודמת](https://twitter.com/kann_news/status/1443619146307018759?s=20)
 * [כמות מתים אדירה](https://twitter.com/yoyoeldad/status/1443607426767409153?s=20)
+* [נאום באו"ם: בנט תקף את משרד הבריאות](https://twitter.com/David_Fohrer/status/1443674480501567488?s=20)
 
 ## ההקמה
 
