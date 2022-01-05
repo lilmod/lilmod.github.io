@@ -60,6 +60,7 @@
 * [מי מאחד ומי מפלג - מעניין](https://twitter.com/LMalenboim/status/1369212483802693636?s=20)
 * [מלפני 22 שנה](https://twitter.com/sari_azoulay/status/1344715397531136000?s=20)
 * [הטענות של השמאל נגד ביבי אותו דבר שנים](https://youtu.be/2tdE49LJ3IE)
+* [האם ביבי תמך בהתנתקות?](http://neri-avneri.co.il/2012/08/22/%D7%A0%D7%AA%D7%A0%D7%99%D7%94%D7%95-%D7%A0%D7%92%D7%93-%D7%94%D7%94%D7%99%D7%A0%D7%AA%D7%A7%D7%95%D7%AA-%D7%A4%D7%A8%D7%95%D7%99%D7%A7%D7%98-%D7%9E%D7%99%D7%95%D7%97%D7%93/)
 * [הצוללות: עלילת דם](https://twitter.com/netanelgla/status/1371223188693192705)
 * [למה ביבי לא פיצל את תפקיד היועמ"ש](https://twitter.com/rothmar/status/1371568189239394304)
 
