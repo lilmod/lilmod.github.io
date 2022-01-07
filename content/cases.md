@@ -2,7 +2,8 @@
 
 # התיקים וכתב האישום
 
-* [הקדמה. לא כל דבר מפתיע זה קונספירציה](https://twitter.com/yotambarnoy/status/1369718460368977924?s=20)
+* [הקדמה. לא כל דבר מפתיע הוא קונספירציה](https://twitter.com/yotambarnoy/status/1369718460368977924?s=20)
+* [הפיכה שלטונית בכלים משפטיים. חזק מאוד](https://mida.org.il/2022/01/05/%d7%94%d7%a4%d7%99%d7%9b%d7%94-%d7%a9%d7%9c%d7%98%d7%95%d7%a0%d7%99%d7%aa-%d7%91%d7%9b%d7%9c%d7%99%d7%9d-%d7%9e%d7%a9%d7%a4%d7%98%d7%99%d7%99%d7%9d-%d7%9b%d7%9a-%d7%91%d7%95%d7%a6%d7%a2-%d7%94%d7%a4/)
 * [תובע פדרלי מנתח את התיקים נגד ביבי. חזק מאוד](https://www.youtube.com/watch?v=ZTxYRhrR8No)
 * [חזק מאוד. דיון מקיף בקפה שפירא על תפירת התיקים](https://www.youtube.com/watch?v=DndV910Omfs)
 * [הצעת החנינה אם ביבי יפרוש](https://www.facebook.com/permalink.php?story_fbid=2219486451684550&id=100008696496760)
@@ -17,6 +18,15 @@
 
 * [פרויקט 315 - הפרכת תיק 4000](https://www.the315.org/)
 * [סרטון שמציג את פרויקט 315](https://www.youtube.com/watch?v=3UaFwBCZh8o)
+
+## מהנעשה במשפט
+* [פודקסט מעולה על תיק 4000 עם גדי טאוב, מושיק קוברסקי, גיא לוי](https://www.youtube.com/watch?v=Y5_BjbQo66k)
+* [תיק 4000 מתפורר](https://twitter.com/GadiTaub1/status/1404706310541778944?s=20)
+* [מגדל הקלפים של תיק 4000](https://youtu.be/AfUyPjbzW8M)
+* [הפרקליטות מודה שהיא לא בחנה התכתבות של ישועה עם פוליטיקאים אחרים](https://twitter.com/YossiFuchs/status/1402203197620510724?s=20)
+* [ישועה מציע לבנט סיקור אוהד בעד הטבות וזה מתבצע](https://twitter.com/Shoshi29805804/status/1443467548767498246?s=20)
+* [עוד](https://twitter.com/talt22/status/1443280917905170440?s=20)
+* [ישועה הציע גם לבנט וגם להרצוג הטבות](https://twitter.com/David_Fohrer/status/1443237805518376964?s=20)
 
 ## תיק 4000
 
@@ -38,15 +48,6 @@
 * [ביבי דוקא היה נגד בזק. חזק](telecomnews.co.il/רק-עובדות-שלא-מספרים-לכם-האם-ביבי-כשר-התקשורת-עזר-לקבוצת-בזק.html)
 * [התיק נגד שלמה פילבר נסגר](https://twitter.com/filbers/status/1364911236882784258?s=20)
 * [חזק. עדו נתניהו מדבר](https://youtu.be/BbzsGLnlvD4)
-
-### מהנעשה במשפט
-* [פודקסט מעולה על תיק 4000 עם גדי טאוב, מושיק קוברסקי, גיא לוי](https://www.youtube.com/watch?v=Y5_BjbQo66k)
-* [תיק 4000 מתפורר](https://twitter.com/GadiTaub1/status/1404706310541778944?s=20)
-* [מגדל הקלפים של תיק 4000](https://youtu.be/AfUyPjbzW8M)
-* [הפרקליטות מודה שהיא לא בחנה התכתבות של ישועה עם פוליטיקאים אחרים](https://twitter.com/YossiFuchs/status/1402203197620510724?s=20)
-* [ישועה מציע לבנט סיקור אוהד בעד הטבות וזה מתבצע](https://twitter.com/Shoshi29805804/status/1443467548767498246?s=20)
-* [עוד](https://twitter.com/talt22/status/1443280917905170440?s=20)
-* [ישועה הציע גם לבנט וגם להרצוג הטבות](https://twitter.com/David_Fohrer/status/1443237805518376964?s=20)
 
 ### סיקור אוהד
 
