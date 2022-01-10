@@ -3,6 +3,7 @@
 # התיקים וכתב האישום
 
 * [הקדמה. לא כל דבר מפתיע הוא קונספירציה](https://twitter.com/yotambarnoy/status/1369718460368977924?s=20)
+* [הפיכה שלטונית: ראיון עם משה קוברסקי. מעולה](https://www.youtube.com/watch?v=4Lb2UxapHHQ)
 * [הפיכה שלטונית בכלים משפטיים. חזק מאוד](https://mida.org.il/2022/01/05/%d7%94%d7%a4%d7%99%d7%9b%d7%94-%d7%a9%d7%9c%d7%98%d7%95%d7%a0%d7%99%d7%aa-%d7%91%d7%9b%d7%9c%d7%99%d7%9d-%d7%9e%d7%a9%d7%a4%d7%98%d7%99%d7%99%d7%9d-%d7%9b%d7%9a-%d7%91%d7%95%d7%a6%d7%a2-%d7%94%d7%a4/)
 * [תובע פדרלי מנתח את התיקים נגד ביבי. חזק מאוד](https://www.youtube.com/watch?v=ZTxYRhrR8No)
 * [חזק מאוד. דיון מקיף בקפה שפירא על תפירת התיקים](https://www.youtube.com/watch?v=DndV910Omfs)
