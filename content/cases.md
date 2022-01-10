@@ -5,6 +5,7 @@
 * [הקדמה. לא כל דבר מפתיע הוא קונספירציה](https://twitter.com/yotambarnoy/status/1369718460368977924?s=20)
 * [הפיכה שלטונית: ראיון עם משה קוברסקי. מעולה](https://www.youtube.com/watch?v=4Lb2UxapHHQ)
 * [הפיכה שלטונית בכלים משפטיים. חזק מאוד](https://mida.org.il/2022/01/05/%d7%94%d7%a4%d7%99%d7%9b%d7%94-%d7%a9%d7%9c%d7%98%d7%95%d7%a0%d7%99%d7%aa-%d7%91%d7%9b%d7%9c%d7%99%d7%9d-%d7%9e%d7%a9%d7%a4%d7%98%d7%99%d7%99%d7%9d-%d7%9b%d7%9a-%d7%91%d7%95%d7%a6%d7%a2-%d7%94%d7%a4/)
+* [רשימת מחדלים בתיקי נתניהו](https://mida.org.il/2021/04/04/%D7%A7%D7%99%D7%A6%D7%95%D7%A8-%D7%AA%D7%95%D7%9C%D7%93%D7%95%D7%AA-%D7%94%D7%9E%D7%97%D7%93%D7%9C%D7%99%D7%9D-%D7%9B%D7%9C-%D7%94%D7%9B%D7%A9%D7%9C%D7%99%D7%9D-%D7%91%D7%AA%D7%99%D7%A7%D7%99-1000-2/)
 * [תובע פדרלי מנתח את התיקים נגד ביבי. חזק מאוד](https://www.youtube.com/watch?v=ZTxYRhrR8No)
 * [חזק מאוד. דיון מקיף בקפה שפירא על תפירת התיקים](https://www.youtube.com/watch?v=DndV910Omfs)
 * [הצעת החנינה אם ביבי יפרוש](https://www.facebook.com/permalink.php?story_fbid=2219486451684550&id=100008696496760)
