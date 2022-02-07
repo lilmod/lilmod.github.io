@@ -1,3 +1,3 @@
 # English Content
 
-* [A Coup Via Judicial Means](coup.md)
+* [A Coup Via Judicial Means](en_coup.md)
