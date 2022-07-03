@@ -9,6 +9,7 @@
 * [שיחה של בנט עם אביו של החייל שנורה בראש בגבול עזה. בושה](https://youtu.be/5CYHHIc76vI)
 
 ## הבגידה בימין
+* [טור חזק של ליבסקינד](https://www.maariv.co.il/journalists/Article-928736)
 * [סמוטריץ: בנט היה הולך עם לפיד בכל מקרה](https://twitter.com/Galicohen33/status/1439566698479292416/photo/1)
 * [הבדל עצום בין מעשה גנץ למעשה בנט](https://twitter.com/Hamutal1/status/1404714791298547712)
 * [שקלי: בנט כבר לא בימין](https://youtu.be/X8lViFm1Gsk)
