@@ -4,7 +4,7 @@
 
 ברוכים הבאים לאתר
 
-* [מערכת המשפט - הנקודות הכי חזקות](content/justice_strongest.md)
+* [מערכת המשפט - הנקודות הכי חזקות](content/judicial_strongest.md)
 
 * [פודקאסט חובה! שי גולדן וביבי בשיחה](https://www.youtube.com/watch?v=_bJy9XLzXvM)
 * [השוואת נתונים בעשור האחרון](https://imgur.com/PcMt3Br)
