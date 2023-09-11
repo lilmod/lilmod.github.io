@@ -9,7 +9,7 @@
    
   יונתן גרין
   
-  נלקח מאתר [הפדרליסט](https://fedsoc.org/federalist-society-review-new/the-peculiar-case-of-the-israeli-legal-system?fbclid=IwAR1qdeV4nzKjFgsfJEJGlIb_IpROFvlh0YaMu9rD7Fa7_FemlKhP0Tm570Q)
+  תורגם מאתר [הפדרליסט](https://fedsoc.org/federalist-society-review-new/the-peculiar-case-of-the-israeli-legal-system?fbclid=IwAR1qdeV4nzKjFgsfJEJGlIb_IpROFvlh0YaMu9rD7Fa7_FemlKhP0Tm570Q)
 
 מערכת המשפט הישראלית מושכת לא פעם הרבה מאוד תשומת לב מבולבלת ונרגשת מצד גורמים מבחוץ. זהו נושא מתמיד של הערצה, לעג בוז וסקרנות אמיתית. בשל האופן בו הוסתר לחלוטין הגבול בין המשפטי והלא-משפטי, כמעט בכל נושא בפוליטיקה, בתרבות, בביטחון, בכלכלה ובחברה בישראל יהיה מרכיב משפטי דומיננטי. נראה כי אירועים ומחלוקות הנוגעות ישירות למערכת המשפט עצמה מייצרים מידה גבוהה במיוחד של עניין ודאגה. זה היה נכון לאורך השנים עוד לפני המאמצים הנוכחיים לרפורמה במערכת המשפט בישראל, והאירועים האחרונים הביאו את העניין הזה לשיא.
 
